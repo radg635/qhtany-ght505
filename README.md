@@ -7,14 +7,7 @@ https://www.mediafire.com/file/79xsb9m9yzhylcx/Land_Cruiser_j70_2023_KHwylD.zip/
 https://modsfire.com/ta72UfzjcjJzbH2
 
 
-كامري 25
-
-https://modsfire.com/VfegwcsP66Tm7Yh
-
-كامري 21
-https://modsfire.com/1n9fA6KQrt2ZDx7
-
-٢٤
+جيب ٢٤
 https://www.dropbox.com/scl/fi/r5wify0p0ubnqjumrc8i3/RB3_2024_KHwylD.zip?rlkey=hzy991y2iqzf9xntpcgw94180&st=qdr3jvej&dl=1%5B/-%5D
 
 ماب تطعيس 
@@ -25,8 +18,7 @@ https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
 
 ماب 
 https://www.mediafire.com/file/01hxc74s29uhkhb/0Toxic_Street_v1_1_edit_S6B.zip/file
-لكزس ٢٠٢٣
-https://modsfire.com/IkCNuQ5HJexCBH2
+
 
 شاص ٢٠٠٠
 https://modsfire.com/dH97TXJ5PZ9OK9F
@@ -44,8 +36,6 @@ https://modsfire.com/UtJ36Cb7c8r9929
 هلي ٢٠٠٩ 
 https://modsfire.com/yG8Wm9F8F8w81sV
 
-كفر شنبر 
-https://www.beamng.com/resources/30-skinny-tires-for-16x7-6lug.23093/
 
 لاند 1998
 
@@ -161,7 +151,7 @@ https://modsfire.com/A57ocVX1VL69JN5
 https://www.mediafire.com/file/35kmtn3skbpumfa/Cr7.2015.zip/file
 
 
-سميحي 
+سميحي ٨٩
 https://modsfire.com/r08nvLn83f9l775
 
 جيب
@@ -186,3 +176,6 @@ https://modsfire.com/HSk9nN9D9t6PV04
 
 جيب ١٤ 
 https://modsfire.com/KhYMpbp2s5K35ow
+
+هيقلس 2012
+https://www.mediafire.com/file/o7t0m3zp45fvr92/هيلقس2012.zip/file
