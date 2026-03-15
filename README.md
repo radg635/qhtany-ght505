@@ -174,3 +174,6 @@ https://www.mediafire.com/file/cjik5nfdxnqywyl/monster_j70.zip/file
 
 افجي ٢٢
 https://www.mediafire.com/file/d9ozarhr6gxwgte/افجي.zip/file
+
+شعفيه جديديه 
+https://modsfire.com/7v3uIZ40VahzH9e
