@@ -179,4 +179,4 @@ https://www.mediafire.com/file/d9ozarhr6gxwgte/افجي.zip/file
 https://modsfire.com/7v3uIZ40VahzH9e
 
 ماب 
-https://www.mediafire.com/file/3g78ewm0c1i7b9i/doriluce_1.4.zip/file
+https://www.mediafire.com/file/l78lfoi02c3jo2q/LA_Canyons_k90.zip/file
