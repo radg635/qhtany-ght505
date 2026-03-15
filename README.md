@@ -174,11 +174,3 @@ https://www.mediafire.com/file/cjik5nfdxnqywyl/monster_j70.zip/file
 
 افجي ٢٢
 https://www.mediafire.com/file/d9ozarhr6gxwgte/افجي.zip/file
-
-كامري 
-https://modsfire.com/download/eGW7Gpt25K9jx3e/024b9
-
-كامري ٢٤
-https://modsfire.com/woyu1oUb8K6q075
-# ght505
-Car bemng
