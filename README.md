@@ -179,7 +179,4 @@ https://www.mediafire.com/file/d9ozarhr6gxwgte/افجي.zip/file
 https://modsfire.com/7v3uIZ40VahzH9e
 
 ماب 
-https://www.mediafire.com/file/7nnr5f8t5qyspe3/k90_ksacars_peper+valy.zip/file
-
-f150
-https://modsfire.com/86Ky9XMMnQ1slfP
+https://www.mediafire.com/file/3g78ewm0c1i7b9i/doriluce_1.4.zip/file
