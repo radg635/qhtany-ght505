@@ -176,3 +176,6 @@ https://modsfire.com/KhYMpbp2s5K35ow
 
 هيقلس 2012
 https://www.mediafire.com/file/o7t0m3zp45fvr92/هيلقس2012.zip/file
+
+هيقلس خوليد 2016 وطالع 
+https://www.mediafire.com/file/0fz3jh68ldfrndz/هيلقس+غماره2016.zip/file
