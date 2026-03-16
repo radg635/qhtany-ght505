@@ -192,3 +192,6 @@ https://www.mediafire.com/file/b6zoc3sdrkr0pup/كراسيده1988.zip/file
 
 كامري ٢٥ 
 https://www.mediafire.com/file/3bym0a5etzjwxv6/كامري2025.zip/file
+
+كامري ١١
+https://www.mediafire.com/file/ffupe63sei88c51/كامري2011.zip/file
