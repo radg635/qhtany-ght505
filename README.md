@@ -189,3 +189,6 @@ https://www.mediafire.com/file/8q7s5srw2elilr2/هيلقس+غمارتين2016.zip
 
 كراسيده محمد زارب 
 https://www.mediafire.com/file/b6zoc3sdrkr0pup/كراسيده1988.zip/file
+
+كامري ٢٥ 
+https://www.mediafire.com/file/3bym0a5etzjwxv6/كامري2025.zip/file
