@@ -173,10 +173,6 @@ https://www.mediafire.com/file/l78lfoi02c3jo2q/LA_Canyons_k90.zip/file
 https://modsfire.com/KhYMpbp2s5K35ow
 
 
-شاص جميع مديلات 
-
-https://www.mediafire.com/file/0xeqh6s5e5mh9qa/شاص+2007+موجوده.zip/file
-
 
 هيقلس 16 غمارتين 
 https://www.mediafire.com/file/8q7s5srw2elilr2/هيلقس+غمارتين2016.zip/file
@@ -196,9 +192,6 @@ https://www.mediafire.com/file/rq9f4pi1ik613ov/كامري+2008.zip/file
 
 صالون ٢٠٠١
 https://www.mediafire.com/file/f08wlcsneoua5kc/صالون+2001.zip/file
-
-ددسن ١٦
-https://www.mediafire.com/file/ts6l58kxu36bmfp/ددسن2016.zip/file
 
 
 
