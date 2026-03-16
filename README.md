@@ -186,3 +186,6 @@ https://www.mediafire.com/file/8q7s5srw2elilr2/هيلقس+غمارتين2016.zip
 لكزز 2022 https://www.mediafire.com/file/w99a1otd2a4w4bo/لكزز2022.zip/file
 
 لكزز سوبر ١٤ https://www.mediafire.com/file/v65tayqdd8kmayi/لكزز+سوبر+lx570.zip/file
+
+كراسيده محمد زارب 
+https://www.mediafire.com/file/b6zoc3sdrkr0pup/كراسيده1988.zip/file
