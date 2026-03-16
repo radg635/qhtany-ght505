@@ -195,3 +195,8 @@ https://www.mediafire.com/file/3bym0a5etzjwxv6/كامري2025.zip/file
 
 كامري ١١
 https://www.mediafire.com/file/ffupe63sei88c51/كامري2011.zip/file
+
+كامري ٨
+https://www.mediafire.com/file/rq9f4pi1ik613ov/كامري+2008.zip/file
+كامري ٦
+https://www.mediafire.com/file/n2jrvqj9rkp1l80/كامري2006.zip/file
