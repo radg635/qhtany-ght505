@@ -182,3 +182,7 @@ https://www.mediafire.com/file/0fz3jh68ldfrndz/هيلقس+غماره2016.zip/fil
 
 هيقلس 16 غمارتين 
 https://www.mediafire.com/file/8q7s5srw2elilr2/هيلقس+غمارتين2016.zip/file
+
+لكزز 2022 https://www.mediafire.com/file/w99a1otd2a4w4bo/لكزز2022.zip/file
+
+لكزز سوبر ١٤ https://www.mediafire.com/file/v65tayqdd8kmayi/لكزز+سوبر+lx570.zip/file
