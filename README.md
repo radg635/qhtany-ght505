@@ -1,9 +1,7 @@
  مواتر
 
 
-ماب 
 
-https://www.mediafire.com/file/gdfm0dz1s5wkepj/ماب+واقعي.zip/file
 
 جيب٢٣
 https://www.mediafire.com/file/79xsb9m9yzhylcx/Land_Cruiser_j70_2023_KHwylD.zip/file
@@ -208,5 +206,3 @@ https://www.mediafire.com/file/c16rcv0sq01l6yd/ددسن98.zip/file
 https://www.mediafire.com/file/iauoehdyhd1oqa4/2014.zipتاهو.zip/file
 
 
-مماب 
-https://www.mediafire.com/file/kr564jrutnol9zy/ماب+جبال.zip/file
