@@ -200,7 +200,7 @@ https://www.mediafire.com/file/c16rcv0sq01l6yd/ددسن98.zip/file
 
 صالون ٩٠
 
-https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://github.com/&ved=2ahUKEwiglcnSzLiTAxVZnf0HHQwnNp4QFnoECB8QAQ&sqi=2&usg=AOvVaw38IHvcyBra8HGhmSxvlCGw
+https://www.mediafire.com/file/31qajvlj5tsqn15/صالون+٩٠.zip/file
 
 تاهو ١٤
 https://www.mediafire.com/file/iauoehdyhd1oqa4/2014.zipتاهو.zip/file
