@@ -210,8 +210,18 @@ https://www.mediafire.com/file/iauoehdyhd1oqa4/2014.zipتاهو.zip/file
 
 
 
-سيرا 
+سيرا ٢٤
 https://modsfire.com/ER7obXTWKtLg1ps
 
 
 
+
+سيرا ٢٦ تجريبي https://www.mediafire.com/file/y51tmn4mucl55qm/سيرا+2026+تجريبي.zip/file
+
+
+جمس سوبرمان تجريبي 
+https://www.mediafire.com/file/k7hrvlj6pf2ul2w/جمس+طويل+تجريبي.zip/file
+
+دوج 
+
+https://www.mediafire.com/file/k7hrvlj6pf2ul2w/جمس+طويل+تجريبي.zip/file
