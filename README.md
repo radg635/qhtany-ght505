@@ -233,3 +233,15 @@ https://www.mediafire.com/file/jbitbnb81bi5vwx/2013.zip/file
 
 انترا 2025
 https://www.mediafire.com/file/fs7gu494k9icig3/انترا+٢٥.zip/file
+
+
+شاص
+https://www.mediafire.com/file/xg7wcakm9ppxmy2/شاص+24.zip/file
+
+
+هايلوكس 2011
+https://www.mediafire.com/file/fhtgnkxj8nsc4yl/هيلقس+١١.zip/file
+
+
+مربعه
+https://www.mediafire.com/file/6scvwpxmzh804mu/Toms_Toyota_LandCruiser_FJ45.zip/file
