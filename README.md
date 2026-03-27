@@ -225,3 +225,7 @@ https://www.mediafire.com/file/k7hrvlj6pf2ul2w/جمس+طويل+تجريبي.zip/
 دوج 
 
 https://www.mediafire.com/file/daolxyc02u1tohd/Dodge_Charger_Hellcat_Widebody_12.zip/file
+
+
+سلفرادو خويلد 
+https://www.mediafire.com/file/jbitbnb81bi5vwx/2013.zip/file
