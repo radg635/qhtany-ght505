@@ -229,3 +229,7 @@ https://www.mediafire.com/file/daolxyc02u1tohd/Dodge_Charger_Hellcat_Widebody_12
 
 سلفرادو خويلد 
 https://www.mediafire.com/file/jbitbnb81bi5vwx/2013.zip/file
+
+
+انترا 2025
+https://www.mediafire.com/file/fs7gu494k9icig3/انترا+٢٥.zip/file
