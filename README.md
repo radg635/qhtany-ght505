@@ -216,17 +216,6 @@ https://modsfire.com/ER7obXTWKtLg1ps
 
 
 
-سيرا ٢٦ تجريبي https://www.mediafire.com/file/y51tmn4mucl55qm/سيرا+2026+تجريبي.zip/file
-
-
-جمس سوبرمان تجريبي 
-https://www.mediafire.com/file/k7hrvlj6pf2ul2w/جمس+طويل+تجريبي.zip/file
-
-دوج 
-
-https://www.mediafire.com/file/daolxyc02u1tohd/Dodge_Charger_Hellcat_Widebody_12.zip/file
-
-
 سلفرادو خويلد 
 https://www.mediafire.com/file/jbitbnb81bi5vwx/2013.zip/file
 
