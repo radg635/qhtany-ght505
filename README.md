@@ -223,10 +223,7 @@ https://modsfire.com/ER7obXTWKtLg1ps
 https://www.mediafire.com/file/pbc9keqc58ixvfe/zip++S3o_Elantra2024.zip/file
 
 
-سكويا
-https://www.mediafire.com/file/rj100rj7i4d3gli/سكويا.zip/file
-
 
 
 ماب 
-https://modsfire.com/8Urhe00o1DCa11n
+https://modsfire.com/RY063R3w0336Ffb
