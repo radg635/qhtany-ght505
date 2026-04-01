@@ -223,5 +223,5 @@ https://modsfire.com/ER7obXTWKtLg1ps
 https://www.mediafire.com/file/pbc9keqc58ixvfe/zip++S3o_Elantra2024.zip/file
 
 
-تجربه
-https://www.mediafire.com/file/0ik2u89anbs27ih/toyota_landcruiser_75.zip/file
+سكويا
+https://www.mediafire.com/file/rj100rj7i4d3gli/سكويا.zip/file
