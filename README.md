@@ -225,22 +225,4 @@ https://www.mediafire.com/file/pbc9keqc58ixvfe/zip++S3o_Elantra2024.zip/file
 
 
 
-ماب ايطاليا
-
-https://www.mediafire.com/file/3g78ewm0c1i7b9i/doriluce_1.4.zip/file
-
-
-
-ماب 
-https://www.mediafire.com/file/tbew3bp2g8u34d9/ogc_two_update.zip/file
-
-
-
-ماب جديد
-
-https://www.mediafire.com/file/cgy076yoi7p14n5/NEFR_0384-1.zip/file
-
-
-
-تاهو 2025
-https://www.mediafire.com/file/v99m4z2p7zr4chz/2_K_tahoe2025.zip/file
+صالون 2016
