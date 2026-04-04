@@ -238,4 +238,9 @@ https://www.mediafire.com/file/q4q1lx7oqc93it4/BdRaN_Lx570.zip/file
 
 
 ماب 
-https://www.mediafire.com/file/njtg5u26ivn5aht/themanhacc_tx_map.zip/file
+https://www.mediafire.com/file/ao0bb2jxru36vgh/M3MotoMadness.zip/file
+
+
+ماب اخر
+
+https://www.mediafire.com/file/otulq5rubkx5g5t/themanhacc_tx_map.zip/file
