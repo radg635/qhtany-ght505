@@ -230,21 +230,5 @@ https://www.mediafire.com/file/yfhkwzidlyl353y/صالون+2016+قطر+هدد.zip
 
 
 
-لكزز ١٤
-https://www.mediafire.com/file/q4q1lx7oqc93it4/BdRaN_Lx570.zip/file
-
-
-فورد https://www.mediafire.com/file/6cngtwamrypesy0/فورد+2011.zip/file
-
-
-ماب 
-https://www.mediafire.com/file/ao0bb2jxru36vgh/M3MotoMadness.zip/file
-
-
-ماب اخر
-
-https://www.mediafire.com/file/otulq5rubkx5g5t/themanhacc_tx_map.zip/file
-
-
-حمس
-https://www.mediafire.com/file/4xp69ksm58i0wzh/Crash_Gmc.zip/file
+صالون 
+https://www.dropbox.com/scl/fi/u4rzv69icso0z5nbupgwp/tlc200k.zip?rlkey=6sw90w71ol91knsticvq9hqq7&dl=1
