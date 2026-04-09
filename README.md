@@ -252,5 +252,5 @@ https://modsfire.com/MoVyTwoqZJcpywQ
 
 
 
-ددسن
-https://www.mediafire.com/file/0q7sjb4epdqm1bc/M7_ddsn1.zip/file
+فتك
+https://modsfire.com/07jc0aCxTk6Wwzp
