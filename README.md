@@ -265,13 +265,7 @@ https://www.mediafire.com/file/9e09nc5q83f5xib/LC200_BdRaN.zip/file
 
 
 
-صالون تجريبي 1
+صالون فككسسسس 21
 https://www.mediafire.com/file/u6sr54ngcb3zdqb/1.zip/file
 
-
-
-صالون تجريبي ٢
-
-
-https://www.mediafire.com/file/au7m6qol6fof8pd/BdRaN_Land_2016-2021.zip/file
 
