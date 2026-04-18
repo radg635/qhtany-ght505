@@ -258,11 +258,3 @@ https://www.mediafire.com/file/u6sr54ngcb3zdqb/1.zip/file
 
 
 
-
-صالون مقصوص 
-https://www.mediafire.com/file/2ncmwsaplul8xos/900+member+gift.zip/file
-
-
-
-صالون ٦
-https://www.mediafire.com/file/ru7frm3u51x0z7l/knz_Land_100.zip/file
