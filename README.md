@@ -257,17 +257,5 @@ https://www.mediafire.com/file/u6sr54ngcb3zdqb/1.zip/file
 
 
 
-
-الجوهره
-https://modsfire.com/vo5X8ao18cPD4qg
-
-
-
-بنز ٨٠
-https://modsfire.com/40fN2osg0bi6wKa
-
-
-
-
-رام
-https://modsfire.com/yw4BJi2w362EA1k
+كامري
+https://www.mediafire.com/file/o6zaujtrkovrqyk/vehicles.zip/file
