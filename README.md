@@ -274,3 +274,8 @@ https://modsfire.com/u2TXq0IqZEFELMN
 
 كامري 2025
 https://www.mediafire.com/file/p3hikqecilwp3vl/Camry_2025_KHwylD.zip/file
+
+
+
+فورشنر 506
+https://www.mediafire.com/file/j7g0w16nwp6oeco/bngtunerfortunervnt.zip/file
