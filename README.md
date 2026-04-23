@@ -266,8 +266,7 @@ https://www.mediafire.com/file/o6zaujtrkovrqyk/vehicles.zip/file
 
 
 جيب
-https://www.mediafire.com/file/tv4hl8f5vaxcgu9/monster_j70.zip/file
-
+https://www.mediafire.com/file/n4k8koeb87xgy0z/monster_j70.zip/file
 
 
 ماب
