@@ -280,11 +280,4 @@ https://cdn.discordapp.com/attachments/1490213563061501982/1492423275152806089/B
 
 
 
-هايلقس
-https://www.mediafire.com/file/pr5vc5lky2axvip/Nolimts+Toyota+Hilux+2009-2011.zip/file
 
-
-
-
-صالون
-https://www.mediafire.com/file/81w2ipm3x385cqq/vehicles.zip/file
