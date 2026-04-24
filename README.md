@@ -274,10 +274,7 @@ https://www.mediafire.com/file/f5f0eo1gtbh00tt/Al_Suwaidi_Crach.zip/file
 
 
 
-سلفرادو ١٧
-https://cdn.discordapp.com/attachments/1490213563061501982/1492423275152806089/BoDuaij_Silverado17.zip?ex=69eb18fc&is=69e9c77c&hm=832256ba5c76aa315016cb31dc2a29742a541d00ced51de6f792263cf6893a09&
-
-
-
+يوكن ١٩
+https://modsfire.com/GC3PQ9DUPR2mz26
 
 
