@@ -274,8 +274,7 @@ https://www.mediafire.com/file/f5f0eo1gtbh00tt/Al_Suwaidi_Crach.zip/file
 
 
 
-gta4
-https://cdn.discordapp.com/attachments/1496699549396504637/1496699549673062480/Esperanto.zip?ex=69ed7893&is=69ec2713&hm=9711e3d36efe11b59debf7f0ca4193b67f2b0d1e033f920f0855133c07095b1f&
+
 
 
 
@@ -285,11 +284,3 @@ https://www.beamng.com/resources/altitude.251/download?version=4053
 
 
 
-فرد
-https://modsfire.com/Uqz9mFbMH588nQZ
-
-
-
-
-
-https://modsfire.com/Q5aq4Ll5Q1EOK6B
