@@ -269,18 +269,5 @@ https://www.mediafire.com/file/o6zaujtrkovrqyk/vehicles.zip/file
 https://www.mediafire.com/file/n4k8koeb87xgy0z/monster_j70.zip/file
 
 
-ماب
-https://www.mediafire.com/file/f5f0eo1gtbh00tt/Al_Suwaidi_Crach.zip/file
-
-
-
-
-
-
-
-
-ماب
-https://www.beamng.com/resources/altitude.251/download?version=4053
-
-
-
+لكزز
+https://www.mediafire.com/file/2lz6c7kb3fubi0l/lexus.zip/file
