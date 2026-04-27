@@ -269,5 +269,9 @@ https://www.mediafire.com/file/o6zaujtrkovrqyk/vehicles.zip/file
 https://www.mediafire.com/file/n4k8koeb87xgy0z/monster_j70.zip/file
 
 
-لكزز
-https://www.mediafire.com/file/2lz6c7kb3fubi0l/lexus.zip/file
+
+
+
+
+
+https://modsfire.com/90d3006P50qB1Ra
