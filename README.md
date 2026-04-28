@@ -279,5 +279,4 @@ https://modsfire.com/90d3006P50qB1Ra
 
 
 
-
-https://www.mediafire.com/file/63nl948acqgh0t6/vehicles.zip/file
+https://www.mediafire.com/file/7tafc9hegxsty09/monster_j70.zip/file
