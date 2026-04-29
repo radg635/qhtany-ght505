@@ -298,3 +298,10 @@ https://modsfire.com/TBYD6WUl065cet4
 
 تاهو
 https://cdn.discordapp.com/attachments/1468324217178296525/1468324223574343733/artahoe13.zip?ex=69f301bf&is=69f1b03f&hm=ebc1149612314176072fdd4f9fa99de0d73c081d3d1d6e911fd36c380e1a7dd6&
+
+
+
+
+
+سكويا 
+https://www.mediafire.com/file/7e9zojgnn30xvvf/sequoia_13_LONLEY.zip/file
