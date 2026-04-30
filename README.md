@@ -172,7 +172,7 @@ https://www.mediafire.com/file/l78lfoi02c3jo2q/LA_Canyons_k90.zip/file
 
 
 
-جيب مصهلولي ٢٣
+جيب م
 https://modsfire.com/KhYMpbp2s5K35ow
 
 
@@ -265,8 +265,7 @@ https://www.mediafire.com/file/o6zaujtrkovrqyk/vehicles.zip/file
 
 
 
-جيب
-https://www.mediafire.com/file/n4k8koeb87xgy0z/monster_j70.zip/file
+
 
 
 
@@ -285,4 +284,10 @@ https://www.mediafire.com/file/7tafc9hegxsty09/monster_j70.zip/file
 
 
 
-https://www.mediafire.com/file/81w2ipm3x385cqq/vehicles.zip/file
+https://www.mediafire.com/file/81w2ipm3x385cqq/vehicles.zip/file 
+
+
+
+
+
+https://www.mediafire.com/file/anita9kajz1gchn/monster_j70.zip/file
