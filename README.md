@@ -285,4 +285,4 @@ https://www.mediafire.com/file/7tafc9hegxsty09/monster_j70.zip/file
 
 
 
-https://www.mediafire.com/file/63nl948acqgh0t6/vehicles%25282%2529.zip/file
+https://www.mediafire.com/file/81w2ipm3x385cqq/vehicles.zip/file
