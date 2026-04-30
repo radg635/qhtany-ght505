@@ -288,6 +288,4 @@ https://www.mediafire.com/file/81w2ipm3x385cqq/vehicles.zip/file
 
 
 
-
-
-https://www.mediafire.com/file/anita9kajz1gchn/monster_j70.zip/file
+اكسنت
