@@ -284,3 +284,12 @@ https://www.mediafire.com/file/7tafc9hegxsty09/monster_j70.zip/file
 
 
 
+جيب ٢٣ خوليد 
+https://www.mediafire.com/file/irc5ag3ahbrahlk/Land_Cruiser_j70_2023_KHwylD.zip/file
+
+
+
+
+
+جيب ٢٤ خويلد 
+https://www.mediafire.com/file/wftov18go3uohyq/RB3_2024_KHwylD.zip/file
