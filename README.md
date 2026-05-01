@@ -3,11 +3,11 @@
 
 
 
-جيب٢٣
+جيب 17_23
 https://www.mediafire.com/file/kvpn4skq3y8cmy2/Land_Cruiser_j70_2023_KHwylD.zip/file
 
 
-جيب ٢٤
+جيب 2006_2024
 
 https://www.mediafire.com/file/wftov18go3uohyq/RB3_2024_KHwylD.zip/file
 
@@ -280,3 +280,5 @@ https://modsfire.com/90d3006P50qB1Ra
 
 
 
+مونستر
+https://www.mediafire.com/file/anita9kajz1gchn/monster_j70.zip/file
