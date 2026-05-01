@@ -278,7 +278,7 @@ https://modsfire.com/90d3006P50qB1Ra
 
 
 جيب
-https://www.mediafire.com/file/7tafc9hegxsty09/monster_j70.zip/file
+https://www.mediafire.com/file/rclchfrc01hfzun/Land_Cruiser_j70_2023_KHwylD.zip/file
 
 
 
