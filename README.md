@@ -8,7 +8,8 @@ https://www.mediafire.com/file/kvpn4skq3y8cmy2/Land_Cruiser_j70_2023_KHwylD.zip/
 
 
 جيب ٢٤
-https://www.dropbox.com/scl/fi/r5wify0p0ubnqjumrc8i3/RB3_2024_KHwylD.zip?rlkey=hzy991y2iqzf9xntpcgw94180&st=qdr3jvej&dl=1%5B/-%5D
+
+https://www.mediafire.com/file/wftov18go3uohyq/RB3_2024_KHwylD.zip/file
 
 ماب تطعيس 
 https://modsfire.com/x0pFzyU8nlU5vk9
@@ -277,18 +278,5 @@ https://modsfire.com/90d3006P50qB1Ra
 
 
 
-جيب
-https://www.mediafire.com/file/rclchfrc01hfzun/Land_Cruiser_j70_2023_KHwylD.zip/file
 
 
-
-
-
-جيب ٢٣ خوليد 
-https://www.mediafire.com/file/irc5ag3ahbrahlk/Land_Cruiser_j70_2023_KHwylD.zip/file
-
-
-
-
-جيب ٢٤ خويلد 
-https://www.mediafire.com/file/wftov18go3uohyq/RB3_2024_KHwylD.zip/file
