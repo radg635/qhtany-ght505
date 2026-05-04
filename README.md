@@ -288,3 +288,5 @@ https://www.mediafire.com/file/anita9kajz1gchn/monster_j70.zip/file
 
 
 
+اكسنت 
+https://modsfire.com/n62FWx47QywQsbI
