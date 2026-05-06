@@ -4,7 +4,7 @@
 
 
 جيب 17_23
-https://www.mediafire.com/file/kvpn4skq3y8cmy2/Land_Cruiser_j70_2023_KHwylD.zip/file
+https://www.mediafire.com/file/tbglvlhudo657ry/Land_Cruiser_j70_2023_KHwylD.zip/file
 
 
 جيب 2006_2024
