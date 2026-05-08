@@ -12,9 +12,9 @@ https://www.mediafire.com/file/tbglvlhudo657ry/Land_Cruiser_j70_2023_KHwylD.zip/
 https://www.mediafire.com/file/wftov18go3uohyq/RB3_2024_KHwylD.zip/file
 
 
-شاصات خويلد تعديلي 9_22
+شاص 2022 تعديلي 
 
-https://www.mediafire.com/file/0netcfiyvj06z3y/شاصات+خويلد.zip/file
+https://www.mediafire.com/file/dk8yednor6ggr0i/Land_Cruiser_LC70_70y.zip/file
 
 
 
