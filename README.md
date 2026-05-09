@@ -311,5 +311,13 @@ https://www.mediafire.com/file/r5wzh7idxqrnawl/Sierra_2013_Crash.zip/file
 
 
 
-مكاين
-https://www.beamng.com/resources/ceep-classic-engine-expansion-pack.29161/updates
+كامري 
+https://www.mediafire.com/file/oj4s08u2jrjq2g3/vehicles.zip/file
+
+
+
+
+
+لوحات 
+
+https://www.mediafire.com/file/gu9vcjirnga9jb2/licenseplates.zip/file
