@@ -317,5 +317,4 @@ https://www.mediafire.com/file/oj4s08u2jrjq2g3/vehicles.zip/file
 
 
 
-
-https://cdn.discordapp.com/attachments/1502852511143301220/1502852516579119165/Chevrolet_Trailblazer.zip?ex=6a0137f9&is=69ffe679&hm=b15290aad4a11a22891b07272edb5fc68f24ac7be6eedce07ec0f3340daaac6b&
+https://beammp.com/en
