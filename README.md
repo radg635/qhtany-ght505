@@ -335,14 +335,5 @@ https://www.mediafire.com/file/baf7ybp8k4ahaee/Tundra_ALD.zip/file
 https://modsfire.com/ad9k0M3DFlZqVwN
 
 
-مكاين تايوتا
-https://www.beamng.com/resources/toyota-truck-engines.15410/
 
-
-
-
-
-
-
-شاص
-https://www.mediafire.com/file/vv6ao093zc1apvn/Almutairi+Land+LC70.zip/file
+https://modsfire.com/5pEk8zl5Wgi3O25
