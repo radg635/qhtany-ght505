@@ -337,3 +337,8 @@ https://modsfire.com/ad9k0M3DFlZqVwN
 
 مكاين تايوتا
 https://www.beamng.com/resources/toyota-truck-engines.15410/
+
+
+
+كفرات وجنوط
+https://modsfire.com/5pEk8zl5Wgi3O25
