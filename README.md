@@ -333,3 +333,7 @@ https://www.mediafire.com/file/baf7ybp8k4ahaee/Tundra_ALD.zip/file
 
 ماب
 https://modsfire.com/ad9k0M3DFlZqVwN
+
+
+مكاين تايوتا
+https://www.beamng.com/resources/toyota-truck-engines.15410/
