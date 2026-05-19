@@ -343,4 +343,4 @@ https://www.mediafire.com/file/4inb3ij44jure13/AL7_RIMZ.zip/file
 
 
 شاص
-https://cloudconvert.com/rar-to-zip
+https://www.mediafire.com/file/q0n9gtfw7v2wnay/Almutairi+Land+LC70.zip/file
