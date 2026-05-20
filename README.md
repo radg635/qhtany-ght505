@@ -331,16 +331,4 @@ https://www.beamng.com/resources/saudi-arabia-license-plate.29990/
 https://www.mediafire.com/file/baf7ybp8k4ahaee/Tundra_ALD.zip/file
 
 
-ماب
-https://modsfire.com/ad9k0M3DFlZqVwN
-
-
-
-
-
-تجريبي 
-https://www.mediafire.com/file/4inb3ij44jure13/AL7_RIMZ.zip/file
-
-
-شاص
-https://www.mediafire.com/file/q0n9gtfw7v2wnay/Almutairi+Land+LC70.zip/file
+https://www.mediafire.com/file/6l2jnymatgn81d7/Tundra_ALD.zip/file
