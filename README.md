@@ -343,7 +343,7 @@ https://modsfire.com/8Llq7dNg7em7Nad
 
 
 هايلقس 12-15
-https://www.mediafire.com/file/wtjfmh1e6bgq0ii/506W_Hilux15_double.zip/file
+https://www.mediafire.com/file/ggdjwrmh8il9b62/506W_Hilux15_double.zip/file
 
 
 لكزز ١٧
@@ -352,5 +352,4 @@ https://www.mediafire.com/file/i5ypc4fv9whmj0p/LX570_2017_KHwylD.zip/file
 
 
 
-التيما
-https://modsfire.com/EoU6A1Y2zmuB71I
+
