@@ -369,16 +369,7 @@ https://www.mediafire.com/file/bilpzw5j32wlme1/CRASH+SERVAER+-Nissan+Ddsen+1+Cab
 https://www.mediafire.com/file/zk923rrd4p42uqp/YBANIH-ABOTRK-BULLET.zip/file
 
 
-ماب 
-https://www.mediafire.com/file/w6s4gsxp3uqmhxk/LakeFarsoeV10.zip/file
-
-
-
 
 لكزز سوبررر 13_15 سوبررر_ سبورت
-
 https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
-
-كامري 24
-https://modsfire.com/jG2d2M6CYbDTs3G
