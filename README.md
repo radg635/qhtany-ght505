@@ -284,23 +284,7 @@ https://www.mediafire.com/file/o6zaujtrkovrqyk/vehicles.zip/file
 
 
  صالون 
-https://modsfire.com/90d3006P50qB1Ra
-
-
-
-
-
-
-جييب مونستر
-https://www.mediafire.com/file/cjik5nfdxnqywyl/monster_j70.zip/file
-
-
-
-
-
-
-اكسنت 
-https://modsfire.com/n62FWx47QywQsbI
+https://modsfire.com/90d3006P50qB1R
 
 
 
