@@ -291,8 +291,8 @@ https://modsfire.com/90d3006P50qB1Ra
 
 
 
-مونستر
-https://www.mediafire.com/file/anita9kajz1gchn/monster_j70.zip/file
+جييب مونستر
+https://www.mediafire.com/file/cjik5nfdxnqywyl/monster_j70.zip/file
 
 
 
@@ -333,13 +333,6 @@ https://www.mediafire.com/file/baf7ybp8k4ahaee/Tundra_ALD.zip/file
 
 
 
-ماب
-https://modsfire.com/ad9k0M3DFlZqVwN
-
-
-فكسس 24
-https://modsfire.com/8Llq7dNg7em7Nad
-
 
 
 هايلقس 12-15
@@ -358,14 +351,8 @@ https://www.mediafire.com/file/bu21pm5eph2bbnl/Hilux_2011_KHwylD+2.zip/file
 
 
 
-ددسنن 
-https://www.mediafire.com/file/bilpzw5j32wlme1/CRASH+SERVAER+-Nissan+Ddsen+1+Cab+Fix_modland.zip/file
 
-
-
-
-
-هقلسص
+هيلقس بوليت
 https://www.mediafire.com/file/zk923rrd4p42uqp/YBANIH-ABOTRK-BULLET.zip/file
 
 
@@ -373,7 +360,3 @@ https://www.mediafire.com/file/zk923rrd4p42uqp/YBANIH-ABOTRK-BULLET.zip/file
 لكزز سوبررر 13_15 سوبررر_ سبورت
 https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
-
-
-
-https://modsfire.com/ixorU0Eu1oLe87n
