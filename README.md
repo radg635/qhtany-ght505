@@ -346,5 +346,5 @@ https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
 
 
-جيب 
-https://www.mediafire.com/file/anita9kajz1gchn/monster_j70.zip/file
+Eaasim, [Jun 10, 2026 at 2:13 AM]
+"C:\Program Files (x86)\Steam\steamapps\common\BeamNG.drive\vehicles\Almutairi Land LC70"
