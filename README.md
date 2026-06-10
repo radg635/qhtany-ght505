@@ -346,5 +346,4 @@ https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
 
 
-
-"C:\Program Files (x86)\Steam\steamapps\common\BeamNG.drive\vehicles\Almutairi_J70"
+https://www.mediafire.com/file/st4mycaurnb90pb/Mcleod_cruiser_100.zip/file
