@@ -345,10 +345,3 @@ https://www.mediafire.com/file/zk923rrd4p42uqp/YBANIH-ABOTRK-BULLET.zip/file
 https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
 
-صالون
-https://www.mediafire.com/file/st4mycaurnb90pb/Mcleod_cruiser_100.zip/file
-
-
-
-شاص
-https://www.mediafire.com/file/ri6z8umbfr2j4sz/Almutairi_Land_LC70.zip/file
