@@ -345,3 +345,7 @@ https://www.mediafire.com/file/zk923rrd4p42uqp/YBANIH-ABOTRK-BULLET.zip/file
 https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
 
+
+
+جيب 
+https://www.mediafire.com/file/st8yotkexi40aky/monster_j70_modland.zip/file
