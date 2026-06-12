@@ -348,11 +348,4 @@ https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
 
 جيب 
-https://www.mediafire.com/file/2wobm1wiqz62uas/monster_j70.zip/file
-
-
-
-
-
-
-https://www.mediafire.com/file/tbbe5zrso3j6dnv/monster_j70_modland.zip/file
+https://www.mediafire.com/file/tbbe5zrso3j6dnv/monster_j70_modland%25282%2529.zip/file
