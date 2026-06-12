@@ -352,5 +352,7 @@ https://www.mediafire.com/file/2wobm1wiqz62uas/monster_j70.zip/file
 
 
 
-ماب
-https://www.modland.net/download/560860
+
+
+
+https://www.mediafire.com/file/tbbe5zrso3j6dnv/monster_j70_modland.zip/file
