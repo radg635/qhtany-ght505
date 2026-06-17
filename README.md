@@ -350,10 +350,5 @@ https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
 
 
-جيب 
-https://www.mediafire.com/file/gatn62wtdnmo94e/vehicles.zip/file
 
-
-
-ماب قوه
-https://modsfire.com/RS4973mgDMM6YKD
+https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=29277
