@@ -35,7 +35,7 @@ https://www.mediafire.com/file/pk7x2hwclkfu3wo/Land_Cruiser_LC70_70y.zip/file
 
 ماب
 
-https://modsfire.com/kRGU2vw99E0W7qc
+https://modsfire.com/ETk5e8WK2zUR0ts
 
 
 ماب عقبه مفرشه
