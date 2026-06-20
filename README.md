@@ -364,5 +364,11 @@ https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
 
 
-
+سواب
 https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=29277
+
+
+
+
+كفر
+https://www.beamng.com/resources/nardelli-offroad-wheels.1404/
