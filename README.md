@@ -369,13 +369,5 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 
 
-كفر
-https://www.beamng.com/resources/nardelli-offroad-wheels.1404/
 
-
-كفرات
-https://www.beamng.com/resources/naorl-off-road-wheels-tires.18187/
-
-
-كفر
-https://cdn.discordapp.com/attachments/1467541670747963493/1467541671787888690/PizzaCutter_30s.zip?ex=6a36b130&is=6a355fb0&hm=200aa04352b5fa8d1dc0c2e7595df5f496c92837a21dde68081735b885fb7d79&
+https://www.modland.net/download/345507#
