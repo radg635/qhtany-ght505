@@ -372,3 +372,7 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 كفر
 https://www.beamng.com/resources/nardelli-offroad-wheels.1404/
+
+
+كفرات
+https://www.beamng.com/resources/naorl-off-road-wheels-tires.18187/
