@@ -377,8 +377,4 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 
 
-https://www.modland.net/download/345507#
-
-
-
-https://modsfire.com/a899ml5QSMA9f1x
+https://modsfire.com/5pEk8zl5Wgi3O25
