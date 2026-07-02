@@ -387,3 +387,7 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 مب
 https://www.beamng.com/resources/mount-danger.13490/download?version=54732
+
+
+
+https://www.beamng.com/resources/sandy-mountain.2644/download?version=42481
