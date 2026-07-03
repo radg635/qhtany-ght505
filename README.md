@@ -20,23 +20,9 @@ https://www.mediafire.com/file/5rdrjsoeoxubky3/abosaad_LX_2009+2.zip/file
 
 
 
-جيب 17_23
-https://www.mediafire.com/file/tbglvlhudo657ry/Land_Cruiser_j70_2023_KHwylD.zip/file
-
-
 جيب 2006_2024
 
 https://www.mediafire.com/file/wftov18go3uohyq/RB3_2024_KHwylD.zip/file
-
-شاص 9_16
-https://www.mediafire.com/file/govqrvt0vyibjoe/Land_Cruiser_j70_2007_KHwylD+2.zip/file
-
-
-
-
-شاص 2022 تعديلي 
-https://www.mediafire.com/file/pk7x2hwclkfu3wo/Land_Cruiser_LC70_70y.zip/file
-
 
 
 
