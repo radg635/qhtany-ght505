@@ -309,16 +309,5 @@ https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 https://www.beamng.com/resources/river-highway.18662/download?version=57883
 
 
-افجي 
-https://drive.google.com/drive/folders/1zZyTDASoeibepNvXDKZJqA91Qv3S6jVI
 
-
-
-سوناتا
-https://drive.google.com/drive/folders/1dgHNtS2zHYgWfsKMD_ThTXfdJtmG4QZG
-
-
-
-
-
-https://www.mediafire.com/file/i1i4bhlftfrwlem/جيب+2024+.zip/file
+https://modsfire.com/RuarzY6YIa3Jc31
