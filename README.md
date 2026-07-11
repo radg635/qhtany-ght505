@@ -309,9 +309,6 @@ https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 https://www.beamng.com/resources/river-highway.18662/download?version=57883
 
 
-سكبرور
-https://modsfire.com/RuarzY6YIa3Jc31
-
 
 
 
@@ -322,3 +319,11 @@ https://modsfire.com/RuarzY6YIa3Jc31
 
 سوب انجنه كفرت منشكلمه لهنت
 https://modsfire.com/5pEk8zl5Wgi3O25
+
+
+
+
+
+ماب
+
+https://cdn.discordapp.com/attachments/1459145966656684254/1459145974923395162/rutas2.zip?ex=6a52d0d6&is=6a517f56&hm=298ba4b32377f51e8c7852bfb1bc5ae509f287698b7f8265b9f3b745d05be18d&
