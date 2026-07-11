@@ -333,3 +333,11 @@ https://cdn.discordapp.com/attachments/1459145966656684254/1459145974923395162/r
 
 ماب
 https://www.beamng.com/resources/altitude.251/download?version=4053
+
+
+
+
+
+
+
+https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=29277
