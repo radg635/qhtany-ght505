@@ -341,3 +341,10 @@ https://www.beamng.com/resources/altitude.251/download?version=4053
 
 
 https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=29277
+
+
+
+
+
+
+https://drive.google.com/drive/folders/1pd0z_46QJ-NaVtNifs4nXDitRNm1itih
