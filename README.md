@@ -23,7 +23,9 @@ https://www.mediafire.com/file/v7lhhkdsq73syp4/شاص+سبعين+عام+2024.zip
 
 
 شاص 2016
-https://www.mediafire.com/file/5rw8hnjhznuvmg3/شاص+2014+خويلد++.zip/file
+
+https://www.mediafire.com/file/1jkjm270bjh6exm/شاص+2014+خويلد++.zip/file
+
 
 
 جيب 2006_2024
@@ -352,4 +354,7 @@ https://drive.google.com/drive/folders/1pd0z_46QJ-NaVtNifs4nXDitRNm1iti
 
 
 
-https://www.mediafire.com/file/1jkjm270bjh6exm/شاص+2014+خويلد++.zip/file
+
+
+
+https://www.mediafire.com/file/n8c3tsqmiv6bnin/جيب+2024+.zip/file
