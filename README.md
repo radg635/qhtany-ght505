@@ -342,7 +342,7 @@ https://www.beamng.com/resources/altitude.251/download?version=4053
 
 
 فلتر 
-https://www.mediafire.com/file/msv7lhgjap7v7v3/agenty_global_values_tuning.zip/file
+https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/
 
 
 
