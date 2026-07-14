@@ -349,6 +349,5 @@ https://www.mediafire.com/file/msv7lhgjap7v7v3/agenty_global_values_tuning.zip/f
 
 
 
-ماب
-تكساس
-https://www.beamng.com/resources/texas-usa.31200/
+شص
+https://www.mediafire.com/file/ieshoc4nw9m1vin/Land+Cruiser+LC70+2025+NJM.zip/file
