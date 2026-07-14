@@ -306,13 +306,8 @@ https://www.mediafire.com/file/yhegsg4msaretsb/لكزز+.zip/file
 
 
 
-
-
-                    مودات_ماابات
-
-
-
 فلتر
+
 https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=29277
                     
 
