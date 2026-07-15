@@ -318,41 +318,8 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 
 
-ماب
-https://modsfire.com/m2p80UOLvy39Mb8
-
-
-ماب
-https://modsfire.com/ad9k0M3DFlZqVwN
-
-
-
-
-
-افجي 
-https://cdn.discordapp.com/attachments/1467883517437280359/1467883522130710548/2022.zip?ex=6a58e50f&is=6a57938f&hm=cbce2f504e9e48a8f304a0e877a76aa8b122deb408be246a2e6f8b12ac3de64d&
-
-
-
-صالون 
-
-
-https://modsfire.com/HSk9nN9D9t6PV04
-
-
-
-
-
-صالون ١٥
-https://cdn.discordapp.com/attachments/1471502203180027956/1471502213435359333/2015.zip?ex=6a58e03a&is=6a578eba&hm=4d9cbf0fe7dee10a2429d305664299bafddded84c5db371576e0edab44091b5c&
-
-
-
-
-
-
-
-https://cdn.discordapp.com/attachments/1471880057088639048/1471880064164696096/2026.zip?ex=6a58eea1&is=6a579d21&hm=968e17068ec8cde864a2c325c2163087aec807bfc15192d8f0f7b5995d63b564&
+ماب الغروبب
+https://cdn.discordapp.com/attachments/1524105297168302313/1526966537775349860/Al_Ghrub.zip?ex=6a58f1e8&is=6a57a068&hm=4682b4624157f63b16a80e793d4c71c7fb3619a20d057f70087a6c0fda9c8995&
 
 
 
