@@ -319,7 +319,7 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 
 ماب الغروبب
-https://cdn.discordapp.com/attachments/1524105297168302313/1526966537775349860/Al_Ghrub.zip?ex=6a58f1e8&is=6a57a068&hm=4682b4624157f63b16a80e793d4c71c7fb3619a20d057f70087a6c0fda9c8995&
+https://www.mediafire.com/file/z1sstmbbn6u19z7/Al_Ghrub.zip/file
 
 
 
