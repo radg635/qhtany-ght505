@@ -332,4 +332,10 @@ https://modsfire.com/0l5CuurbCzlpN41
 
 
 
-https://www.beamng.com/resources/mks-dynamic-weather.33820/
+https://modsfire.com/30Fae72Sajk9nRW اسكبدشن
+
+
+
+
+
+https://www.beamng.com/resources/ck-dynamic-skybox.33030/
