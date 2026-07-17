@@ -317,25 +317,5 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 
 
-
-ماب الغروبب
-https://www.mediafire.com/file/z1sstmbbn6u19z7/Al_Ghrub.zip/file
-
-
-
-
-
-فورد
-https://modsfire.com/0l5CuurbCzlpN41
-
-
-
-
-
-https://modsfire.com/30Fae72Sajk9nRW اسكبدشن
-
-
-
-
-
+غيوم
 https://www.beamng.com/resources/ck-dynamic-skybox.33030/
