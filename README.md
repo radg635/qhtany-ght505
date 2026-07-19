@@ -319,3 +319,9 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 غيوم
 https://www.beamng.com/resources/ck-dynamic-skybox.33030/
+
+
+
+
+
+https://cdn.discordapp.com/attachments/1468147374210809857/1468147377465720967/2015_.zip?ex=6a5d268b&is=6a5bd50b&hm=5f03ddba6617a36b9c9c5c4aace32eefa7af3fe5b2f3826241f32e52054d3493&
