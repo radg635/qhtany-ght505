@@ -320,7 +320,7 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 
 
-https://www.mediafire.com/file/igwx7ls80dc0dob/LCJ71_j70_2006_KHwylD.zip/file
+https://www.mediafire.com/file/sohl17tvv6x9chq/LCJ71_j70_2006_KHwylD.zip/file
 
 
 
