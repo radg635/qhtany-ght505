@@ -61,7 +61,7 @@ https://www.dropbox.com/scl/fi/iv3t63v33x8bww54lbu65/Land_Cruiser_1998_KHwylD-2.
 
 
 هليقكس خويلد 15
-https://modsfire.com/WA3xyWB40c781mx
+https://www.mediafire.com/file/ih7bubv9tqq1zwc/Hilux_2015_KHwylD.zip/file
 
 
 
