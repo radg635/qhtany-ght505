@@ -312,33 +312,15 @@ https://www.mediafire.com/file/ukkldugigkotid6/Cadnza_2017_KHwylD.zip/file
 فلتر
 
 https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=29277
-                    
 
 
-
-
-غيوم
-https://www.beamng.com/resources/ck-dynamic-skybox.33030/
-
-
-
-
-جمس
-https://cdn.discordapp.com/attachments/1468147374210809857/1468147377465720967/2015_.zip?ex=6a5d268b&is=6a5bd50b&hm=5f03ddba6617a36b9c9c5c4aace32eefa7af3fe5b2f3826241f32e52054d3493&
+                  
 
 
 
 
 
-كامري 
-https://cdn.discordapp.com/attachments/1482028708255764633/1482028858705449123/Camry_25_KHwylD.zip?ex=6a5f87ee&is=6a5e366e&hm=053efa9c2bd621fb9d93550c4920be1c5dfaf3c3c97bf704d7f48ea36ea24a24&
-
-
-
-
-برنامج نجم تجربه
-https://www.mediafire.com/file/1enwt6imfk27f1u/NJM_Setup.zip/file
-
+https://www.mediafire.com/file/igwx7ls80dc0dob/LCJ71_j70_2006_KHwylD.zip/file
 
 
 
