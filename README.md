@@ -336,8 +336,8 @@ https://cdn.discordapp.com/attachments/1482028708255764633/1482028858705449123/C
 
 
 
-
-
+برنامج نجم تجربه
+https://www.mediafire.com/file/1enwt6imfk27f1u/NJM_Setup.zip/file
 
 
 
