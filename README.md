@@ -314,11 +314,6 @@ https://www.mediafire.com/file/ukkldugigkotid6/Cadnza_2017_KHwylD.zip/file
 https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=29277
 
 
-                  
-
-
-
-
-
-https://www.mediafire.com/file/pn1ip9dnooviny5/2005.zip/file
-
+دويريه
+https://modsfire.com/oYTke00Aox4B3th
+               
