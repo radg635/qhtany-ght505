@@ -340,3 +340,9 @@ https://cdn.discordapp.com/attachments/1531127186096918668/1531127190735945839/A
 
 شاص 
 https://www.mediafire.com/file/z4xaq5qhfdmpvv2/Crash_j70_2007.zip/file
+
+
+
+
+شاص 22
+https://www.mediafire.com/file/h4wi28rl1w0a9im/Almutairi_Land_LC70.zip/file
