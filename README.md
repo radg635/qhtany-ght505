@@ -360,6 +360,7 @@ https://cdn.discordapp.com/attachments/1531441724487110768/1531441725808312440/A
 
 
 
+كروزز
 
-
+https://cdn.discordapp.com/attachments/1531438352635793689/1531438358214082610/Echo_Team_cruze_2026.zip?ex=6a69369d&is=6a67e51d&hm=6007f44f3d1e8ad5fafc09c6ceb539e69d88f03b511671ca42c744cd5ec9486a&
 
