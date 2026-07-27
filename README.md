@@ -355,7 +355,8 @@ https://cdn.discordapp.com/attachments/1531441985112506579/1531441986974912542/Y
 
 
 
-
+اكورد
+https://cdn.discordapp.com/attachments/1531441724487110768/1531441725808312440/Accord_2017_KHwylD.zip?ex=6a6939c0&is=6a67e840&hm=e032b2d0feca215a642701ff9bacb03d8c9055c2c11cfa4fdbb0ea08b4b34e0d&
 
 
 
