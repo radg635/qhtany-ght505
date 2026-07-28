@@ -7,7 +7,7 @@ https://www.mediafire.com/file/lasg4ybe6q62lr2/vehicles.zip/file
 
 
 جــيـب
-https://www.mediafire.com/file/m4vyjj1foxq1w1u/جيب+مونستر+القديم+.zip/file
+
 
 
 جيب 2023
@@ -347,13 +347,13 @@ https://www.mediafire.com/file/h4wi28rl1w0a9im/Almutairi_Land_LC70.zip/file
 
 
 
-
+جيب مونستر القديم 
 https://www.dropbox.com/scl/fi/1xbbdebghz7l0v2fnvwg2/monster_j70.zip?rlkey=2z2xrmdcmravk5gl8vgozap3j&st=9otbosiw&dl=1
 
 
-
+غيوم
 https://www.beamng.com/resources/ck-dynamic-skybox.33030/
 
 
-
+صالون
 https://modsfire.com/TBYD6WUl065cet4
