@@ -356,5 +356,4 @@ https://www.beamng.com/resources/ck-dynamic-skybox.33030/
 
 
 
-
-https://www.mediafire.com/file/x5vxo1ywahlorh4/جيب+مونستر+نسخه+القديمه.zip/file
+https://modsfire.com/TBYD6WUl065cet4
