@@ -348,19 +348,4 @@ https://www.mediafire.com/file/h4wi28rl1w0a9im/Almutairi_Land_LC70.zip/file
 
 
 
-يوكن ٢٥
-
-https://cdn.discordapp.com/attachments/1531441985112506579/1531441986974912542/YUKON_25.zip?ex=6a6939fe&is=6a67e87e&hm=d6ee6d236224c428f57d6fd2e2ef8a5bbb558d643df4ab1940c63581dc7bf9e9&
-
-
-
-
-اكورد
-https://cdn.discordapp.com/attachments/1531441724487110768/1531441725808312440/Accord_2017_KHwylD.zip?ex=6a6939c0&is=6a67e840&hm=e032b2d0feca215a642701ff9bacb03d8c9055c2c11cfa4fdbb0ea08b4b34e0d&
-
-
-
-كروزز
-
-https://cdn.discordapp.com/attachments/1531438352635793689/1531438358214082610/Echo_Team_cruze_2026.zip?ex=6a69369d&is=6a67e51d&hm=6007f44f3d1e8ad5fafc09c6ceb539e69d88f03b511671ca42c744cd5ec9486a&
 
