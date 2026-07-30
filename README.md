@@ -30,8 +30,7 @@ https://www.mediafire.com/file/ngphezru1l3fqmv/شاص+سبعين+عام+22.zip/f
 
 شاص 2023
 
-https://www.mediafire.com/file/82t2383zqeeexhr/شاص+2014+خويلد++.zip/file
-
+https://www.mediafire.com/file/onkkcczpuq9tcie/شاص+2014+خويلد++.zip/file
 
 
 جيب 2025
