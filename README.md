@@ -325,22 +325,6 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 
 
-
-
-
-ماب النظيم
-https://cdn.discordapp.com/attachments/1530717883842428968/1530717891467415642/9921e4a30eda8258.zip?ex=6a693aa0&is=6a67e920&hm=14cea362e7fbafaca8823a466f5ca54386f2de28717ca85ea17d1164ebba5309&
-
-
-
-
-
-سوناتا
-https://cdn.discordapp.com/attachments/1531112985949638656/1531112987887276142/Hyundai_Sonata_2014.zip?ex=6a695917&is=6a680797&hm=6c102d89a2d8ad2e0834484dc563efbeb1b51efa7fa7039d4a7efe5c891e3dd7&
-
-
-
-
 الغروب 
 https://www.mediafire.com/file_premium/olpoqjf0whvjxh5/Al_Ghrub_KHwylD.zip/file
 
@@ -352,14 +336,6 @@ https://www.mediafire.com/file/h4wi28rl1w0a9im/Almutairi_Land_LC70.zip/file
 
 
 
-جيب مونستر القديم 
-https://www.dropbox.com/scl/fi/1xbbdebghz7l0v2fnvwg2/monster_j70.zip?rlkey=2z2xrmdcmravk5gl8vgozap3j&st=9otbosiw&dl=1
-
-
-تاهو
-https://cdn.discordapp.com/attachments/1531438584018505848/1531438586652655799/TAHOE_14_N47_OAN.zip?ex=6a6a8853&is=6a6936d3&hm=9f4b402fb50f0cf82565ae193f3c114eaadeced3082d5c034ab197e7606c3d96&
-
-
 
 
 غيوم
@@ -367,5 +343,13 @@ https://www.beamng.com/resources/ck-dynamic-skybox.33030/
 
 
 
-تجربه
-https://www.mediafire.com/file/7o4jeu0jubzuv8m/.pending-1785742843-LCJ71_j70_2006_KHwylD(2).zip/file
+كامري ٢٦
+https://cdn.discordapp.com/attachments/1532024464664039507/1532329624212738128/koko_toyota_camry_2026_1785156253807.zip?ex=6a6c74ab&is=6a6b232b&hm=05915f6c01798187ba235d613b59a68b9a73fad671911a6b1ee8645bd44592da&
+
+
+
+
+
+
+فلتر
+https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=
