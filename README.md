@@ -351,5 +351,4 @@ https://cdn.discordapp.com/attachments/1532024464664039507/1532329624212738128/k
 
 
 
-فلتر
-https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/update?resource_update_id=
+
