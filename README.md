@@ -346,9 +346,8 @@ https://www.beamng.com/resources/ck-dynamic-skybox.33030/
 
 
 
-كامري ٢٦
-https://cdn.discordapp.com/attachments/1532024464664039507/1532329624212738128/koko_toyota_camry_2026_1785156253807.zip?ex=6a6c74ab&is=6a6b232b&hm=05915f6c01798187ba235d613b59a68b9a73fad671911a6b1ee8645bd44592da&
-
+تريله
+https://modsfire.com/0m3c9224Kbh444c
 
 
 
