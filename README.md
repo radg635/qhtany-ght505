@@ -345,9 +345,12 @@ https://www.beamng.com/resources/ck-dynamic-skybox.33030/
 
 
 
-تريله
-https://modsfire.com/0m3c9224Kbh444c
+صوت
+https://www.dropbox.com/scl/fi/3yflg5pr8wxm9dsi9gtap/.zip?rlkey=rxviv6y7kd4epsuo5pn399zo5&st=4uevw417&dl=1
 
+
+جيب
+https://www.dropbox.com/scl/fi/1xbbdebghz7l0v2fnvwg2/monster_j70.zip?rlkey=2z2xrmdcmravk5gl8vgozap3j&st=9otbosiw&dl=1
 
 
 
