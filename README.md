@@ -340,14 +340,6 @@ https://www.mediafire.com/file/h4wi28rl1w0a9im/Almutairi_Land_LC70.zip/file
 
 
 
-غيوم
-https://www.beamng.com/resources/ck-dynamic-skybox.33030/
-
-
-
-صوت
-https://www.dropbox.com/scl/fi/3yflg5pr8wxm9dsi9gtap/.zip?rlkey=rxviv6y7kd4epsuo5pn399zo5&st=4uevw417&dl=1
-
 
 جيب
 https://www.dropbox.com/scl/fi/1xbbdebghz7l0v2fnvwg2/monster_j70.zip?rlkey=2z2xrmdcmravk5gl8vgozap3j&st=9otbosiw&dl=1
