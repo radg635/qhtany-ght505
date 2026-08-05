@@ -342,7 +342,7 @@ https://www.mediafire.com/file/h4wi28rl1w0a9im/Almutairi_Land_LC70.zip/file
 
 
 جيب
-https://www.dropbox.com/scl/fi/1xbbdebghz7l0v2fnvwg2/monster_j70.zip?rlkey=2z2xrmdcmravk5gl8vgozap3j&st=9otbosiw&dl=1
+https://www.mediafire.com/file/5n1yyezi7uespq0/جيب+مونستر+القديم+.zip/file
 
 
 
