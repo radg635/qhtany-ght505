@@ -1,4 +1,6 @@
+جيب 
 
+https://www.mediafire.com/file/aq8kjt06w94kq5f/monster_j70.zip/file
 
 
 
