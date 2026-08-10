@@ -189,6 +189,13 @@ https://www.beamng.com/resources/ssrb.523/
 
 
 
-
+افجي 22
 
 https://www.mediafire.com/file/h8s991vhvdj2rxk/vehicles.zip/file
+
+
+
+
+
+جمس
+https://cdn.discordapp.com/attachments/1411966402814021736/1495549702807097556/GMC_CLASSIC.zip?ex=6a7a4eb3&is=6a78fd33&hm=84b1bbc44bcf950eb0486ae2fa897c04505b67f40962d4c42259c58c39d46f4d&
