@@ -197,17 +197,6 @@ https://www.mediafire.com/file/h8s991vhvdj2rxk/vehicles.zip/file
 
 
 
-جمس
-https://cdn.discordapp.com/attachments/1411966402814021736/1495549702807097556/GMC_CLASSIC.zip?ex=6a7a4eb3&is=6a78fd33&hm=84b1bbc44bcf950eb0486ae2fa897c04505b67f40962d4c42259c58c39d46f4d&
 
 
-
-
-
-
-
-
-
-
-
-https://r3-kjxyo-modsfire.b6fbbdf4a435e192350b1c62f9bdcba7.r2.cloudflarestorage.com//storage/86767/1087947/kn0z_Land_100.V2_Hotfix_modland.zip?X-Amz-Content-Sha256=UNSIGNED-PAYLOAD&X-Amz-Algorithm=AWS4-HMAC-SHA256&X-Amz-Credential=bd34892968f912e905e2133f90e63ad8%2F20260408%2Fauto%2Fs3%2Faws4_request&X-Amz-Date=20260408T211143Z&X-Amz-SignedHeaders=host&X-Amz-Expires=600&X-Amz-Signature=8343d0b74635522b47efec3862273e0549d25fa72fbc2fa103f721ccb3f544f4
+https://www.mediafire.com/file/qysm62w90if7uvv/pickup+2016.zip/file
