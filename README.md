@@ -190,18 +190,13 @@ https://www.beamng.com/resources/ssrb.523/
 
 
 افجي 22
-
 https://www.mediafire.com/file/h8s991vhvdj2rxk/vehicles.zip/file
 
 
 
 
+ماب
+https://modsfire.com/8Urhe00o1DCa11n
 
 
 
-https://www.mediafire.com/file/qysm62w90if7uvv/pickup+2016.zip/file
-
-
-
-
-https://modsfire.com/JgRjZoiR2c9a26w
