@@ -3,6 +3,8 @@
 
 
 
+افجي 2022
+https://www.mediafire.com/file/vrn9kmj4xntpoyb/افجي+22.zip/file
 
 
 
@@ -186,11 +188,6 @@ https://www.beamng.com/resources/ssrb.523/
 
 
 
-
-
-
-افجي 22
-https://www.mediafire.com/file/h8s991vhvdj2rxk/vehicles.zip/file
 
 
 
