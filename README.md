@@ -202,3 +202,8 @@ https://modsfire.com/2Xvg5XV290kMU76
 
 كامري 
 https://www.modland.net/beamng.drive-mods/cars/toyota-camry-xv70-2018-2024-repaired-improved.html
+
+
+
+ماب
+https://modsfire.com/gMM8h1pU362TC64
