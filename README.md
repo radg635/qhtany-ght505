@@ -197,8 +197,7 @@ https://modsfire.com/2Xvg5XV290kMU76
 
 
 
-كامري 
-https://www.modland.net/beamng.drive-mods/cars/toyota-camry-xv70-2018-2024-repaired-improved.html
+
 
 
 
@@ -210,4 +209,5 @@ https://modsfire.com/gMM8h1pU362TC64
 
 
 
-https://www.dropbox.com/scl/fi/1xbbdebghz7l0v2fnvwg2/monster_j70.zip?rlkey=2z2xrmdcmravk5gl8vgozap3j&st=9otbosiw&dl=1
+فورشنر
+https://www.mediafire.com/file/8gzd951qgwgjnm9/Fortuner_2014_KHwylD.zip/file
