@@ -213,9 +213,6 @@ https://www.mediafire.com/file/8gzd951qgwgjnm9/Fortuner_2014_KHwylD.zip/file
 
 
 
-جبال
-https://modsfire.com/kEPrXNj40eALYLW
 
 
-باريس
-https://modsfire.com/mX0H270Cc1E1QN8
+https://www.mediafire.com/file/0z0ua2ip3vescyh/افجي+22.zip/file
