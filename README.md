@@ -82,8 +82,6 @@ https://www.dropbox.com/scl/fi/iudwc1yl80day1996nnng/Al-Jaradiah-Riyadh_modland-
 
 
 
-ماب خويلد 
-https://www.dropbox.com/scl/fi/x3tw3vjm0nmierww711w4/Content_Creators_KHwylD.zip?rlkey=d58srsbl57hsncmzr7fuo0bvp&st=xbjdkogc&dl=0
 
 
 
@@ -161,8 +159,7 @@ https://www.mediafire.com/file/83q982eg71c8fgs/McLeod_Ddsn_2016_2.zip/file
 
 
 
-صالوون٢٦
-https://www.mediafire.com/file/jll796ny7gnxywj/2026.zip/file
+
 
 
 
@@ -190,12 +187,6 @@ https://www.beamng.com/resources/ssrb.523/
 
 
 
-شاص 2001
-
-https://modsfire.com/2Xvg5XV290kMU76
-
-
-
 
 
 
@@ -214,5 +205,11 @@ https://www.mediafire.com/file/8gzd951qgwgjnm9/Fortuner_2014_KHwylD.zip/file
 
 
 
-
+افجي
 https://www.mediafire.com/file/0z0ua2ip3vescyh/افجي+22.zip/file
+
+
+
+
+غمارتين 
+https://www.mediafire.com/file/dh5iqy121nsg2cv/Hilux+2012+-+2015.zip/file
