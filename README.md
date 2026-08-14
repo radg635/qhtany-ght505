@@ -211,11 +211,9 @@ https://www.mediafire.com/file/0z0ua2ip3vescyh/افجي+22.zip/file
 
 
 
-غمارتين 
-https://www.mediafire.com/file/dh5iqy121nsg2cv/Hilux+2012+-+2015.zip/file
 
 
 
 
 
-https://cdn.discordapp.com/attachments/1206336564100333599/1537781121788674110/bmwm3.zip?ex=6a8049c6&is=6a7ef846&hm=2eb5c6fac101ea1f1fca6d95799fb8765278296ec97d32882f13e4e6f7144b9a&
+https://cdn.discordapp.com/attachments/1537777799606308865/1537777802038878278/BMW_X7_G07.zip?ex=6a8046ae&is=6a7ef52e&hm=aa4dea47cafe99d221e0e7ee02d97076fff39c6ab725716706c01ebc67346ea2&
