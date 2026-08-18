@@ -217,4 +217,5 @@ https://www.mediafire.com/file/dh5iqy121nsg2cv/Hilux_2012_-_2015.zip/file
 https://www.beamng.com/resources/american-road.3100/download?version=61513
 
 
-https://www.mediafire.com/file/feszcyhl80jnpwy/Vehicles.zip/file
+ماب
+https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
