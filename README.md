@@ -224,19 +224,10 @@ https://www.mediafire.com/file/d80f87jza4r7jt5/S3o_Elantra2024.zip/file
 
 
 
-كامري
-https://www.mediafire.com/file/r0rirete9tv3uxq/koko_camry_2016_1785274501290.zip/file
-
 
 
 اكورد 
 https://www.mediafire.com/file/xe89echwmmtspmq/koko_accord_2017_1785128781660.zip/file
 
 
-سوناتا
-https://www.mediafire.com/file/yj1v54cqqviaqj5/koko_sonata_2014_1785112796496.zip/file
-
-
-
-f150
-https://www.mediafire.com/file/vxwyhfqgeeg14u7/vehicle_f150_2024_1785392760216.zip/file
+https://www.mediafire.com/file/7nnr5f8t5qyspe3/k90_ksacars_peper+valy.zip/file
