@@ -228,3 +228,7 @@ https://www.mediafire.com/file/s0pjvwk7m3u5xcj/Tshalee7_FordTaurus26.zip/file
 
 النترا
 https://www.mediafire.com/file/d80f87jza4r7jt5/S3o_Elantra2024.zip/file
+
+
+F150
+https://www.mediafire.com/file/v6ini1y5bcn5skb/ZOMVL_Ford_F150_2024_2025_v1.2.zip/file
