@@ -217,25 +217,3 @@ https://www.mediafire.com/file/dh5iqy121nsg2cv/Hilux_2012_-_2015.zip/file
 https://www.beamng.com/resources/american-road.3100/download?version=61513
 
 
-ماب
-https://www.mediafire.com/file/bvbtq083xr43leo/0Toxic_Street_v1_1.zip/file
-
-
-
-
-
-
-
-
-
-
-بترول 
-https://cdn.discordapp.com/attachments/1529770388878266418/1529770643523108934/pxfsh6f.zip?ex=6a856c6f&is=6a841aef&hm=640822063169f36db7155f2336351ced92001daa5bb27c5ca44e90d654b66dd3&
-
-
-
-
-
-
-فورد 
-https://www.mediafire.com/file/st4cxrgqo8km3u7/فورد+.zip/file
