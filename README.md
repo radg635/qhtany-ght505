@@ -235,3 +235,8 @@ https://www.mediafire.com/file/xe89echwmmtspmq/koko_accord_2017_1785128781660.zi
 
 سوناتا
 https://www.mediafire.com/file/yj1v54cqqviaqj5/koko_sonata_2014_1785112796496.zip/file
+
+
+
+f150
+https://www.mediafire.com/file/vxwyhfqgeeg14u7/vehicle_f150_2024_1785392760216.zip/file
