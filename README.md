@@ -217,7 +217,4 @@ https://www.mediafire.com/file/dh5iqy121nsg2cv/Hilux_2012_-_2015.zip/file
 https://www.beamng.com/resources/american-road.3100/download?version=61513
 
 
-
-
-
-https://modsfire.com/TBYD6WUl065cet4
+https://www.mediafire.com/file/feszcyhl80jnpwy/Vehicles.zip/file
