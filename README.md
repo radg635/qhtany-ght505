@@ -217,3 +217,5 @@ https://www.mediafire.com/file/dh5iqy121nsg2cv/Hilux_2012_-_2015.zip/file
 https://www.beamng.com/resources/american-road.3100/download?version=61513
 
 
+كامري
+https://www.mediafire.com/file/n8aulnl9v2hiksx/Camry+2006.zip/file
