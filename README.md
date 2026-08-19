@@ -254,3 +254,8 @@ https://www.mediafire.com/file/poy8tuiynor0ld4/Tshalee7_camry18_24_modland.zip/f
 
 ماب
 https://www.mediafire.com/file/j5ct9az60wzfr63/koko_map_al_jaradiah_1785165050542.zip/file
+
+
+
+كدلك 1960
+https://cdn.discordapp.com/attachments/1539620641924448256/1539620647670648872/chevy59_.zip?ex=6a86faf7&is=6a85a977&hm=90f7420385fa3e61373eefaee17fa7ad19bcc055edad34b86a5432fdcefa309f&
