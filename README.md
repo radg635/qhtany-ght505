@@ -239,3 +239,8 @@ https://www.mediafire.com/file/7nnr5f8t5qyspe3/k90_ksacars_peper+valy.zip/file
 
 جيب 3dm
 https://www.mediafire.com/file/yq16hdkmbfamcqb/rb33dm.zip/file
+
+
+
+افلون خويلد (تجربه)
+https://www.mediafire.com/file/2035upiqx1sdtwo/vehicle_avalon_2022_1784777523907.zip/file
