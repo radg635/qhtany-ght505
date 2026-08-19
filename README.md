@@ -259,3 +259,9 @@ https://www.mediafire.com/file/j5ct9az60wzfr63/koko_map_al_jaradiah_178516505054
 
 كدلك 1960
 https://cdn.discordapp.com/attachments/1539620641924448256/1539620647670648872/chevy59_.zip?ex=6a86faf7&is=6a85a977&hm=90f7420385fa3e61373eefaee17fa7ad19bcc055edad34b86a5432fdcefa309f&
+
+
+
+
+تاهو
+https://www.mediafire.com/file/laf13ecr3sgdk07/koko_chevorlet_tahoe_2014_1785167388590.zip/file
