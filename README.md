@@ -243,8 +243,7 @@ https://www.mediafire.com/file/yq16hdkmbfamcqb/rb33dm.zip/file
 
 
 افلون خويلد (تجربه)
-https://www.mediafire.com/file/2035upiqx1sdtwo/vehicle_avalon_2022_1784777523907.zip/file
-
+https://www.mediafire.com/file/vv3q35fbtsccfda/2022.zip/file
 
 
 كامري m7 (تجربه)
