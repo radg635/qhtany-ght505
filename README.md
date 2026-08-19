@@ -248,3 +248,9 @@ https://www.mediafire.com/file/vv3q35fbtsccfda/2022.zip/file
 
 كامري m7 (تجربه)
 https://www.mediafire.com/file/poy8tuiynor0ld4/Tshalee7_camry18_24_modland.zip/file
+
+
+
+
+ماب
+https://www.mediafire.com/file/j5ct9az60wzfr63/koko_map_al_jaradiah_1785165050542.zip/file
