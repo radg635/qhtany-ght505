@@ -21,8 +21,7 @@ https://www.mediafire.com/file/ah1kweort91ufn3/Buthaila+&+Al3udaid+lc300.zip/fil
 
 
 
-جيب عدم
-https://modsfire.com/mdSQtk1u5lf6yu5
+
 
 
 
@@ -239,21 +238,3 @@ https://www.mediafire.com/file/7nnr5f8t5qyspe3/k90_ksacars_peper+valy.zip/file
 
 
 
-https://www.dropbox.com/scl/fi/uj65vdmbd8sw51mt3ubjk/landsg.zip?rlkey=a84hoqil6q0vnpyfffpm5l0pu&st=ar078kt9&dl=1
-
-https://www.dropbox.com/scl/fi/l5wqm00tudr0myd6x3xs8/Gayster_Toyota_Land_Cruiser_j70_V1_modland_modland.zip?rlkey=76ifn4ejnm1j6wff27qhtpx61&dl=1
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-https://www.dropbox.com/scl/fi/dhnov9pe7k8adlx1it2am/F6EZ_J70.zip?rlkey=wf9pq85eefpbptufv4xqdiz3y&st=w71pdkbo&dl=1
