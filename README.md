@@ -244,3 +244,8 @@ https://www.mediafire.com/file/yq16hdkmbfamcqb/rb33dm.zip/file
 
 افلون خويلد (تجربه)
 https://www.mediafire.com/file/2035upiqx1sdtwo/vehicle_avalon_2022_1784777523907.zip/file
+
+
+
+كامري خويلد (تجربه)
+https://www.mediafire.com/file/lo8tq1vno8lvto8/koko_camry_2021_1786915548084.zip/file 
