@@ -265,3 +265,8 @@ https://cdn.discordapp.com/attachments/1539620641924448256/1539620647670648872/c
 
 تاهو
 https://www.mediafire.com/file/laf13ecr3sgdk07/koko_chevorlet_tahoe_2014_1785167388590.zip/file
+
+
+
+يوكن 2019
+https://www.mediafire.com/file/0qwdzkvuonctw2s/koko_gmc_yukon_2019.zip/file
