@@ -277,3 +277,8 @@ https://www.mediafire.com/file/0qwdzkvuonctw2s/koko_gmc_yukon_2019.zip/file
 
 يوكن 2025
 https://www.mediafire.com/file/qjy7ai2gtl119jy/koko_gmc_yukon_2025_.zip/file
+
+
+
+بيستون ميني 
+https://www.mediafire.com/file/fc4t3vwytu189tw/vehicle_pony2025_.zip/file
