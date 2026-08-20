@@ -242,8 +242,7 @@ https://www.mediafire.com/file/yq16hdkmbfamcqb/rb33dm.zip/file
 
 
 
-افلون خويلد (تجربه)
-https://www.mediafire.com/file/vv3q35fbtsccfda/2022.zip/file
+
 
 
 كامري m7 (تجربه)
@@ -268,12 +267,6 @@ https://www.mediafire.com/file/laf13ecr3sgdk07/koko_chevorlet_tahoe_2014_1785167
 
 
 
-يوكن 2019
-https://www.mediafire.com/file/0qwdzkvuonctw2s/koko_gmc_yukon_2019.zip/file
-
-
-
-
 
 يوكن 2025
 https://www.mediafire.com/file/qjy7ai2gtl119jy/koko_gmc_yukon_2025_.zip/file
@@ -282,3 +275,7 @@ https://www.mediafire.com/file/qjy7ai2gtl119jy/koko_gmc_yukon_2025_.zip/file
 
 بيستون ميني 
 https://www.mediafire.com/file/fc4t3vwytu189tw/vehicle_pony2025_.zip/file
+
+
+f150
+https://www.mediafire.com/file/hxhb4upnlucb5j6/vehicle_f150_2024_.zip/file
