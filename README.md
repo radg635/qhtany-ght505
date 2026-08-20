@@ -136,8 +136,6 @@ https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-v
 
 
 
-الغروب 
-https://www.mediafire.com/file_premium/olpoqjf0whvjxh5/Al_Ghrub_KHwylD.zip/file
 
 
 
