@@ -277,5 +277,11 @@ https://www.mediafire.com/file/qjy7ai2gtl119jy/koko_gmc_yukon_2025_.zip/file
 https://www.mediafire.com/file/fc4t3vwytu189tw/vehicle_pony2025_.zip/file
 
 
+
 f150
 https://www.mediafire.com/file/hxhb4upnlucb5j6/vehicle_f150_2024_.zip/file
+
+
+
+فورتشنر (506w)
+https://www.mediafire.com/file/20cyglokpqaxjy5/koko_fortuner_12_15_.zip/file
