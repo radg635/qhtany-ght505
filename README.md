@@ -279,3 +279,5 @@ https://www.mediafire.com/file/fc4t3vwytu189tw/vehicle_pony2025_.zip/file
 https://www.mediafire.com/file/97easm35qh20g38/vehicle_f150_2024_.zip/file
 
 
+يوكن 2014
+https://www.mediafire.com/file/6sbnvb6hi9zqlz7/vehicle_yuckon_2014.zip/file
