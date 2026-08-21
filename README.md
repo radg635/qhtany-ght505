@@ -280,10 +280,5 @@ https://www.mediafire.com/file/97easm35qh20g38/vehicle_f150_2024_.zip/file
 
 
 
-(تجربه)
-https://modsfire.com/2U5yvkH54sX17ob
-
-
-
-ماب 
-https://modsfire.com/fitjR6JbM5HTJd6
+(يارس)
+https://cdn.discordapp.com/attachments/1402416164977774764/1520106891777278072/Toyota_Yaris_Sedan_2026.zip?ex=6a89289d&is=6a87d71d&hm=3a65911686ebd3271e7aee4253da099fc1a05d58fff94ca49fbe9588995588a7&
