@@ -281,3 +281,7 @@ https://www.mediafire.com/file/97easm35qh20g38/vehicle_f150_2024_.zip/file
 
 يوكن 2014
 https://www.mediafire.com/file/6sbnvb6hi9zqlz7/vehicle_yuckon_2014.zip/file
+
+
+ماب رياض
+https://modsfire.com/k9v8M815N0Mgb3T
