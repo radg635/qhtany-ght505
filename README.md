@@ -280,6 +280,5 @@ https://www.mediafire.com/file/97easm35qh20g38/vehicle_f150_2024_.zip/file
 
 
 
-
-
-https://www.mediafire.com/file/r84cnb9kiev0yfk/BeamMP.zip/file
+بترول (خويلد)
+https://www.mediafire.com/file/xgd4vv874z331nh/vehicle_patrol_2020_1784778631050.zip/file
