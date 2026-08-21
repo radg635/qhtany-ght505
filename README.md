@@ -282,3 +282,7 @@ https://www.mediafire.com/file/97easm35qh20g38/vehicle_f150_2024_.zip/file
 
 بترول (خويلد)
 https://www.mediafire.com/file/xgd4vv874z331nh/vehicle_patrol_2020_1784778631050.zip/file
+
+
+بترول غماره
+https://www.mediafire.com/file/wt281d4fcg678ns/vehicle_pickup_vtc_1784778705084.zip/file
