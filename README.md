@@ -290,3 +290,7 @@ https://www.mediafire.com/file/wt281d4fcg678ns/vehicle_pickup_vtc_1784778705084.
 
 الغروب
 https://www.mediafire.com/file/rl9ofhevbkpp9c3/map_al_ghrub_1784837493666.zip/file
+
+
+الطوقي
+https://www.mediafire.com/file/fy4dtdln7kfv5cw/koko_al6o8y_1785162600937.zip/file
