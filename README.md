@@ -280,21 +280,5 @@ https://www.mediafire.com/file/97easm35qh20g38/vehicle_f150_2024_.zip/file
 
 
 
-بترول (خويلد)
-https://www.mediafire.com/file/xgd4vv874z331nh/vehicle_patrol_2020_1784778631050.zip/file
-
-
-بترول غماره
-https://www.mediafire.com/file/wt281d4fcg678ns/vehicle_pickup_vtc_1784778705084.zip/file
-
-
-الغروب
-https://www.mediafire.com/file/rl9ofhevbkpp9c3/map_al_ghrub_1784837493666.zip/file
-
-
-الطوقي
-https://www.mediafire.com/file/fy4dtdln7kfv5cw/koko_al6o8y_1785162600937.zip/file
-
-
-
-https://www.mediafire.com/file/h91diqdih1fsnjl/Toyota+Land+Cruiser+1997.zip/file
+(تجربه)
+https://modsfire.com/2U5yvkH54sX17ob
