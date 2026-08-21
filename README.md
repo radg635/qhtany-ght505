@@ -261,7 +261,7 @@ https://cdn.discordapp.com/attachments/1539620641924448256/1539620647670648872/c
 
 
 تاهو
-https://www.mediafire.com/file/laf13ecr3sgdk07/koko_chevorlet_tahoe_2014_1785167388590.zip/file
+https://www.mediafire.com/file/rbn41y4fwpdoj7b/koko_chevorlet_tahoe_2014_1785167388590.zip/file
 
 
 
@@ -283,5 +283,4 @@ https://www.mediafire.com/file/97easm35qh20g38/vehicle_f150_2024_.zip/file
 https://www.mediafire.com/file/6sbnvb6hi9zqlz7/vehicle_yuckon_2014.zip/file
 
 
-ماب رياض
-https://modsfire.com/k9v8M815N0Mgb3T
+
