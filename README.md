@@ -287,3 +287,14 @@ https://www.dropbox.com/scl/fi/6f0k1y5z4nj4cuwfpeenb/Caprice_2013_KHwylD.zip?rlk
 
 برادو
 https://www.dropbox.com/scl/fi/5yxpblqrwhq6zir3z4oyi/Toyota-Land-Cruiser-Prado-2024.zip?rlkey=5ea0v3kkcro8n6jcx6e88u9mb&st=vlrbxd7j&dl=1
+
+
+
+
+لاند
+https://www.dropbox.com/scl/fi/b8tinv9covtvwt48sjr40/kn0z_Land_100.V2_Hotfix.zip?rlkey=oh0jawm7ezwx5kh1b5gnr164h&st=0b0w8nfg&dl=1
+
+
+
+
+https://www.mediafire.com/file/f20ef81y79jrbuo/knz_Land_100.zip?/file
