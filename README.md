@@ -288,23 +288,11 @@ https://www.mediafire.com/file/6sbnvb6hi9zqlz7/vehicle_yuckon_2014.zip/file
 https://www.mediafire.com/file/ttbn7w051c36q67/koko_content_creators_1785563571636.zip/file
 
 
-
-
-ماب (QE1)
-https://modsfire.com/vlF3XzeHzGEaMq5
-
-
-
-(تجريبي)
-https://modsfire.com/2U5yvkH54sX17ob
-
-
 سيرا 2013
 https://www.mediafire.com/file/6skw8kw3ex5fj9v/GMC_Sierra_2013-2007.zip/file
 
 
-جيب 
-https://modsfire.com/4ytFGm1b19IjtOR
+
 
 
 
