@@ -249,19 +249,8 @@ https://www.mediafire.com/file/poy8tuiynor0ld4/Tshalee7_camry18_24_modland.zip/f
 
 
 
-ماب
+ماب (الجرايده)
 https://www.mediafire.com/file/j5ct9az60wzfr63/koko_map_al_jaradiah_1785165050542.zip/file
-
-
-
-كدلك 1960
-https://cdn.discordapp.com/attachments/1539620641924448256/1539620647670648872/chevy59_.zip?ex=6a86faf7&is=6a85a977&hm=90f7420385fa3e61373eefaee17fa7ad19bcc055edad34b86a5432fdcefa309f&
-
-
-
-
-تاهو
-https://www.mediafire.com/file/rbn41y4fwpdoj7b/koko_chevorlet_tahoe_2014_1785167388590.zip/file
 
 
 
@@ -284,17 +273,9 @@ https://www.mediafire.com/file/6sbnvb6hi9zqlz7/vehicle_yuckon_2014.zip/file
 
 
 
-ماب
+ماب (صناع المحتوى خويلد)
 https://www.mediafire.com/file/ttbn7w051c36q67/koko_content_creators_1785563571636.zip/file
 
 
-سيرا 2013
-https://www.mediafire.com/file/6skw8kw3ex5fj9v/GMC_Sierra_2013-2007.zip/file
-
-
-
-
-
-
-صالون 
-https://cdn.discordapp.com/attachments/1531256167932756050/1531256176883531806/ALJNOUB-LAND_AboKhaled-100.zip?ex=6a8ad3f1&is=6a898271&hm=3959950a96d7178849e97a08d783858bca22bd42944c4b46286b9f895dfeb408&
+سوناتا
+https://www.mediafire.com/file/ar45cl94xrc7zzj/koko_sonata_2014_1785153589354.zip/file
