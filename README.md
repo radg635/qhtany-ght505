@@ -290,3 +290,8 @@ https://www.dropbox.com/scl/fi/6f0k1y5z4nj4cuwfpeenb/Caprice_2013_KHwylD.zip?rlk
 
 ماب Axle Valley
 https://www.modland.net/beamng.drive-mods/maps/axle-valley-map-free.html
+
+
+
+
+https://cdn.discordapp.com/attachments/1222928208975106152/1504158936704483438/JSD_knz_Land_100.zip?ex=6a8b202c&is=6a89ceac&hm=da75516b42a96e36052b13c5fea7cd4d76b9e0f197e896e7fb7d89574bcc5cd8&
