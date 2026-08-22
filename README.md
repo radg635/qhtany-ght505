@@ -285,11 +285,5 @@ https://www.mediafire.com/file/ar45cl94xrc7zzj/koko_sonata_2014_1785153589354.zi
 كابرس 2013
 https://www.dropbox.com/scl/fi/6f0k1y5z4nj4cuwfpeenb/Caprice_2013_KHwylD.zip?rlkey=4p472i0uskgdohvmnzy9qdmh1&st=mu9l41el&dl=1
 
-
-
-كابرس 
-https://www.dropbox.com/scl/fi/sysw1znxd750zjxnheclc/Caprice_2006_KHwylD.zip?rlkey=p2ansqs3z250pkls5cb7bn64k&st=2vukebrc&dl=1
-
-
 برادو
 https://www.dropbox.com/scl/fi/5yxpblqrwhq6zir3z4oyi/Toyota-Land-Cruiser-Prado-2024.zip?rlkey=5ea0v3kkcro8n6jcx6e88u9mb&st=vlrbxd7j&dl=1
