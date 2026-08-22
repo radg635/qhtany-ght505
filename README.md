@@ -285,21 +285,3 @@ https://www.mediafire.com/file/ar45cl94xrc7zzj/koko_sonata_2014_1785153589354.zi
 كابرس 2013
 https://www.dropbox.com/scl/fi/6f0k1y5z4nj4cuwfpeenb/Caprice_2013_KHwylD.zip?rlkey=4p472i0uskgdohvmnzy9qdmh1&st=mu9l41el&dl=1
 
-برادو
-https://www.dropbox.com/scl/fi/5yxpblqrwhq6zir3z4oyi/Toyota-Land-Cruiser-Prado-2024.zip?rlkey=5ea0v3kkcro8n6jcx6e88u9mb&st=vlrbxd7j&dl=1
-
-
-
-
-لاند
-https://www.dropbox.com/scl/fi/b8tinv9covtvwt48sjr40/kn0z_Land_100.V2_Hotfix.zip?rlkey=oh0jawm7ezwx5kh1b5gnr164h&st=0b0w8nfg&dl=1
-
-
-
-
-https://www.mediafire.com/file/f20ef81y79jrbuo/knz_Land_100.zip?/file
-
-
-
-
-https://www.dropbox.com/scl/fi/m8mfrvjbdm87cisnp7vxi/Camry_2005_KHwylD.zip?rlkey=6k2xk7adc5oxd1381ysxe1rdy&st=xyxcius1&dl=1
