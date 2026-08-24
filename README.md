@@ -294,17 +294,8 @@ https://www.modland.net/beamng.drive-mods/maps/axle-valley-map-free.html
 
 
 صالون (knz)
-https://www.mediafire.com/file/pb0arji4zcoqcrr/knz_Land_100.zip/file
-
-
-
-
-
-
-https://modsfire.com/90d3006P50qB1Ra
-
-
-
-
-
 https://www.mediafire.com/file/r29jnhgjgv3tevw/Land_100.zip/file
+
+
+كامري سري 2025
+https://sharemods.com/6ztjegnv3dy9/Camry_2025_NJM.zip.html
