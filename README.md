@@ -17,7 +17,8 @@ https://www.mediafire.com/file/ah1kweort91ufn3/Buthaila+&+Al3udaid+lc300.zip/fil
 
   
 
- كامري https://www.mediafire.com/file/slen1yl5tvrlrmv/koko_toyota_camry_2026_1785156253807.zip/file
+ كامري 2026 (خويلد)
+ https://www.mediafire.com/file/slen1yl5tvrlrmv/koko_toyota_camry_2026_1785156253807.zip/file
 
 
 
@@ -297,9 +298,4 @@ https://www.modland.net/beamng.drive-mods/maps/axle-valley-map-free.html
 https://www.mediafire.com/file/r29jnhgjgv3tevw/Land_100.zip/file
 
 
-كامري سري 2025
-https://modsfire.com/1xNoi2J90wUeCx6
 
-
-كورفت
-https://www.modland.net/beamng.drive-mods/cars/chevrolet-corvette-c6-15.html
