@@ -309,9 +309,22 @@ https://www.mediafire.com/file/scwvst930zqc2bu/Al_Daw_Al_Khafit_Crash_KHwylD.zip
 https://www.mediafire.com/file/9bbirhi1zxzh5pi/vehicle_elantra_2025_1784778815421.zip/file
 
 
+كدينزا (محسنه)
+
+https://www.mediafire.com/file/y9hc1n6kwd8allr/koko_cadenza_2018_.zip/file
+
+
  مود شرطة
  https://cdn.discordapp.com/attachments/1539750628056895578/1539766268805259376/PoliceRoleplay-Beta-1.2.1-BeamNG-0.39_modland.zip?ex=6a8f6b95&is=6a8e1a15&hm=060e1840410794aa87beb5f745e10523a2a7681885c239a592ee3b0b7119c1ff&
 
 
-سفتي
-https://cdn.discordapp.com/attachments/1539750628056895578/1539766453086068776/Police_Patrol_Horn_v0.39.4.zip?ex=6a8f6bc1&is=6a8e1a41&hm=525f299444df7418372915181513548dff8e649c6bc72844ae9311d4eab0aca4&
+
+
+
+
+
+
+
+
+
+
