@@ -305,4 +305,5 @@ https://www.mediafire.com/file/nzngf2jt5exzx8l/Land_100.zip/file
 https://www.mediafire.com/file/scwvst930zqc2bu/Al_Daw_Al_Khafit_Crash_KHwylD.zip/file
 
 
-https://modsfire.com/TBYD6WUl065cet4
+النترا 2025
+https://www.mediafire.com/file/9bbirhi1zxzh5pi/vehicle_elantra_2025_1784778815421.zip/file
