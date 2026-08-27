@@ -314,6 +314,11 @@ https://www.mediafire.com/file/9bbirhi1zxzh5pi/vehicle_elantra_2025_178477881542
 https://www.mediafire.com/file/y9hc1n6kwd8allr/koko_cadenza_2018_.zip/file
 
 
+ماب كراش
+https://modsfire.com/N0wXl1g0v9XoisP
+
+
+
  مود شرطة
  https://cdn.discordapp.com/attachments/1539750628056895578/1539766268805259376/PoliceRoleplay-Beta-1.2.1-BeamNG-0.39_modland.zip?ex=6a8f6b95&is=6a8e1a15&hm=060e1840410794aa87beb5f745e10523a2a7681885c239a592ee3b0b7119c1ff&
 
