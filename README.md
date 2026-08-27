@@ -314,8 +314,6 @@ https://www.mediafire.com/file/9bbirhi1zxzh5pi/vehicle_elantra_2025_178477881542
 https://www.mediafire.com/file/y9hc1n6kwd8allr/koko_cadenza_2018_.zip/file
 
 
-ماب كراش
-https://modsfire.com/N0wXl1g0v9XoisP
 
 
 
@@ -333,18 +331,7 @@ https://www.beamng.com/resources/skeleton-coast.37306/
 
 
 
-ماب مغامرات
-https://modsfire.com/NkQ0C0ZLrwOCen2
 
-
-كابرس 84
-https://modsfire.com/C5d590Y19z6XfE0
-
-
-
-
-تشارجر
-https://www.modland.net/beamng.drive-mods/cars/dodge-charger-v075.html
 
 
 
