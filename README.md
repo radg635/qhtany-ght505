@@ -326,8 +326,9 @@ https://modsfire.com/N0wXl1g0v9XoisP
 
 
 
+ماب
 
-
+https://www.beamng.com/resources/skeleton-coast.37306/
 
 
 
