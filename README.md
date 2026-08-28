@@ -13,7 +13,7 @@ https://www.mediafire.com/file/ah1kweort91ufn3/Buthaila+&+Al3udaid+lc300.zip/fil
 
 
 شاص 2005_2000
-https://www.mediafire.com/file/zecb969hjx587os/Land+LC70+_+2000+_2005+.zip/file
+https://www.mediafire.com/file/j0nvjt3zkkkb2m4/Land+LC70+_+2000+_2005.zip/file
 
 
   
