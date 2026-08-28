@@ -332,7 +332,8 @@ https://www.beamng.com/resources/skeleton-coast.37306/
 
 
 
-
+لكزز صغيره
+https://www.mediafire.com/file/pp0yawgemm9gle7/لكزز+صغيره.zip/file
 
 
 
