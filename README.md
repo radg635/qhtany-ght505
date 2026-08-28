@@ -15,12 +15,6 @@ https://www.mediafire.com/file/cyrd7sdywgu36u8/LC300_2022_Tshalee7.zip/file
 
 
 
-
-
-
-
-
-
 2026 فكساار
 
 https://www.mediafire.com/file/ah1kweort91ufn3/Buthaila+&+Al3udaid+lc300.zip/file  
