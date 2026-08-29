@@ -353,5 +353,3 @@ https://www.mediafire.com/file/chhqs7zexpcz4uf/koko_sonata_2014_1785112796496.zi
 
 
 
-كامري 2006
-https://www.mediafire.com/file/7esoswln4rrnzad/Camry+2006.zip/file
