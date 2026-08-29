@@ -340,13 +340,6 @@ https://www.beamng.com/resources/skeleton-coast.37306/
 
 
 
-
-
-لكزز صغيره
-https://www.mediafire.com/file/pp0yawgemm9gle7/لكزز+صغيره.zip/file
-
-
-
 ماب دايري خويلد
 https://www.mediafire.com/file/pyys92475ix1in8/HighWay_KHwylD.zip/file
 
@@ -355,10 +348,5 @@ https://www.mediafire.com/file/pyys92475ix1in8/HighWay_KHwylD.zip/file
 https://www.mediafire.com/file/69abprozxdx8kyd/Al_Ghrub_3F6.zip/file?dkey=69abprozxdx8kyd
 
 
-
-كرلا
-https://modsfire.com/3FgHE6RZYW5AR5M
-
-
-هوندا ستي
-https://www.mediafire.com/file/mz83eluv6rm7dl5/m7_saku_city.zip/file
+هوندا سوناتا 2014
+https://www.mediafire.com/file/chhqs7zexpcz4uf/koko_sonata_2014_1785112796496.zip/file
