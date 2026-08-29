@@ -350,3 +350,8 @@ https://www.mediafire.com/file/69abprozxdx8kyd/Al_Ghrub_3F6.zip/file?dkey=69abpr
 
 هوندا سوناتا 2014
 https://www.mediafire.com/file/chhqs7zexpcz4uf/koko_sonata_2014_1785112796496.zip/file
+
+
+
+كامري 2006
+https://www.mediafire.com/file/7esoswln4rrnzad/Camry+2006.zip/file
