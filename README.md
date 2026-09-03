@@ -355,4 +355,4 @@ https://www.beamng.com/resources/force-feedback-mod.39163/
 
 
 
-https://www.mediafire.com/file/ctp131tqh9frsj2/kn0z_Land_100.V2_Hotfix.zip/file
+https://www.mediafire.com/file/j9qc27qomhlyg1j/LFR_Team_Kia_K4.7z/file
