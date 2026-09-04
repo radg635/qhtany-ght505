@@ -357,3 +357,9 @@ https://www.beamng.com/resources/force-feedback-mod.39163/
 
 سزوكي ديرايز
 https://www.mediafire.com/file/sxemmz8znqby71l/koko_suzuki_dzire_2024_1788533214370.zip/file
+
+
+
+
+
+https://sharemods.com/azedixe5pfc3/LC_100_omashida.zip.html
