@@ -368,3 +368,8 @@ https://cdn.discordapp.com/attachments/1528525604738039839/1528525607905001672/m
 
 جيب
 https://modsfire.com/download/4ytFGm1b19IjtOR/b9eae
+
+
+
+كروز 26
+https://www.mediafire.com/file/yadxadyklc0g7iv/koko_cruze_2026_1785162900846.zip/file
