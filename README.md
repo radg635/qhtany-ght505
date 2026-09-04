@@ -355,8 +355,5 @@ https://www.beamng.com/resources/force-feedback-mod.39163/
 
 
 
-https://www.mediafire.com/file/j9qc27qomhlyg1j/LFR_Team_Kia_K4.7z/file
-
-
-امبالا
-https://cdn.discordapp.com/attachments/1544824785098244156/1544824788055232522/impala67fix_tg_m0dsbeamng.zip?ex=6a99e9b2&is=6a989832&hm=4e866b0be3edb848915ec02e5b00846999ebf798632b94d6b6acfaa8ec79d3c5&
+سزوكي ديرايز
+https://www.mediafire.com/file/sxemmz8znqby71l/koko_suzuki_dzire_2024_1788533214370.zip/file
