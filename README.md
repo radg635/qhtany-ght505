@@ -355,31 +355,5 @@ https://www.beamng.com/resources/force-feedback-mod.39163/
 
 
 
-سزوكي ديرايز
-https://www.mediafire.com/file/sxemmz8znqby71l/koko_suzuki_dzire_2024_1788533214370.zip/file
-
-
-
-
 مرسيدس اس ال 2026
 https://cdn.discordapp.com/attachments/1528525604738039839/1528525607905001672/mercedesSLkenemation.zip?ex=6a9beba7&is=6a9a9a27&hm=86c7ff1b1dfe39b2ad473606fb71aaf86b584732943ae84eba8ab67cd3f24ddf&
-
-
-
-كروز 26
-https://www.mediafire.com/file/yadxadyklc0g7iv/koko_cruze_2026_1785162900846.zip/file
-
-
-
-
-
-
-زور ريز
-https://cdn.discordapp.com/attachments/1545546217168048208/1545546223652438057/cullinankenemationpack.zip?ex=6a9d3256&is=6a9be0d6&hm=d81d1e450c6419a339ca9cdd1980344a32001bf8e44fb3dd2943ec74e3b293b2&
-
-
-
-
-
-
-https://www.mediafire.com/file/8b112pfi0c2k0al/pickup+2016.zip/file
