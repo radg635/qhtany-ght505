@@ -356,19 +356,4 @@ https://www.beamng.com/resources/force-feedback-mod.39163/
 
 
 
-مود مطر على خط
-https://modsfire.com/BDNTy1i03Ib93YV
 
-
-
-
-
-https://modsfire.com/2lAkE7iZXsXQEQ0
-
-
-
-
-
-
-
-https://www.mediafire.com/file/8b112pfi0c2k0al/pickup_2016.zip/file
