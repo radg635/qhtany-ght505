@@ -348,13 +348,6 @@ https://www.mediafire.com/file/96hjj4vv4nde398/koko_al_shifa_1788106080554.zip/f
 https://www.beamng.com/resources/force-feedback-mod.39163/
 
 
-
-
-سيرا 2013
-https://www.mediafire.com/file/6skw8kw3ex5fj9v/GMC_Sierra_2013-2007.zip/file
-
-
-
-
-https://modsfire.com/LKiLCAMNSAHfq3h
+روز رايز
+https://modsfire.com/72xwIxXbsmooe0t
 
