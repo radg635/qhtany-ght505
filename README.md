@@ -348,10 +348,5 @@ https://www.mediafire.com/file/96hjj4vv4nde398/koko_al_shifa_1788106080554.zip/f
 https://www.beamng.com/resources/force-feedback-mod.39163/
 
 
-ت
-https://www.mediafire.com/file/979v5ykf9vtafbc/Tundra_ALD+(2).zip/file
-
-
-
-
-https://www.mediafire.com/file/a8nrizwjhbff9nt/lc200rus.zip/file
+سيرا
+https://modsfire.com/download/vzHV00lGe211b68/b71b1
