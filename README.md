@@ -350,3 +350,21 @@ https://www.beamng.com/resources/force-feedback-mod.39163/
 
 سيرا
 https://modsfire.com/download/vzHV00lGe211b68/b71b1
+
+
+سيرا 2013 (كراش)
+https://www.mediafire.com/file/dhh721mhzx6ojmo/Sierra_2013_Crash.zip/file
+
+
+
+
+
+
+
+
+
+
+
+
+
+
