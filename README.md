@@ -348,10 +348,6 @@ https://www.mediafire.com/file/96hjj4vv4nde398/koko_al_shifa_1788106080554.zip/f
 https://www.beamng.com/resources/force-feedback-mod.39163/
 
 
-سيرا
-https://modsfire.com/download/vzHV00lGe211b68/b71b1
-
-
 سيرا 2013 (كراش)
 https://www.mediafire.com/file/dhh721mhzx6ojmo/Sierra_2013_Crash.zip/file
 
@@ -359,14 +355,3 @@ https://www.mediafire.com/file/dhh721mhzx6ojmo/Sierra_2013_Crash.zip/file
 
 سلفرادو 2013 (خويلد)
 https://www.mediafire.com/file/9wl464nxxcz8m3r/Silverado_2013_KHwylD.zip/file
-
-
-
-
-تاهو 2014
-https://www.mediafire.com/file/7smbc4nchud81jn/koko_chevorlet_tahoe_2014_.zip/file
-
-
-
-يوكن 2019
-https://www.mediafire.com/file/pf5zrmizcp3yitq/koko_gmc_yukon_2019_.zip/file
