@@ -365,5 +365,5 @@ https://www.mediafire.com/file/f0w792o2227ctul/mods+(1).zip/file
 تاهو
 https://www.mediafire.com/file/baymdq69adgghtb/Tahoe+.+2014.zip/file
 
-صالون ١١
-https://www.mediafire.com/file/mird2vndr1it4l9/land+2011.zip/file
+لكزز 2017 (خويلد)
+https://www.mediafire.com/file/0kiub4hnixh96t0/LX570_2017_KHwylD.zip/file
