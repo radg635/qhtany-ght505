@@ -372,4 +372,4 @@ https://www.mediafire.com/file/0kiub4hnixh96t0/LX570_2017_KHwylD.zip/file
 
 
 افلون 2022 (خويلد)
-https://www.mediafire.com/file/etnvsyl1guy0eyr/vehicle_avalon_2022_1784777523907.zip/file
+https://cdn.discordapp.com/attachments/1548771811846660126/1548771815185318020/Avalon_2022_.zip?ex=6aa8ee67&is=6aa79ce7&hm=1727e591c153f0d2e508d5d2677a1d8f84e98c25fabadabc3155badcca3c23fd&
