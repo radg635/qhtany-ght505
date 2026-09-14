@@ -373,3 +373,8 @@ https://www.mediafire.com/file/0kiub4hnixh96t0/LX570_2017_KHwylD.zip/file
 
 افلون 2022 (خويلد)
 https://www.mediafire.com/file/kpqu6uenk4i6yte/Avalon+2022+KHwylD.zip/file
+
+
+
+كابرس 1984
+https://cdn.discordapp.com/attachments/1546921330257952798/1546921337925275769/notlow_chevy_caprice_v1.3.zip?ex=6aa8ca83&is=6aa77903&hm=0e8679e939ba1f25f978637d9153699c694a4c9253b68753a006fca886af9ddf&
