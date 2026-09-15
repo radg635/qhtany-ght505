@@ -362,9 +362,6 @@ https://www.mediafire.com/file/9wl464nxxcz8m3r/Silverado_2013_KHwylD.zip/file
 https://www.mediafire.com/file/f0w792o2227ctul/mods+(1).zip/file
 
 
-تاهو
-https://www.mediafire.com/file/baymdq69adgghtb/Tahoe+.+2014.zip/file
-
 لكزز 2017 (خويلد)
 https://www.mediafire.com/file/0kiub4hnixh96t0/LX570_2017_KHwylD.zip/file
 
@@ -373,14 +370,3 @@ https://www.mediafire.com/file/0kiub4hnixh96t0/LX570_2017_KHwylD.zip/file
 
 افلون 2022 (خويلد)
 https://www.mediafire.com/file/kpqu6uenk4i6yte/Avalon+2022+KHwylD.zip/file
-
-
-
-
-
-
-
-
-
-
-https://www.mediafire.com/file/63wo7or6lzsurt2/Camry+2006.zip/file
