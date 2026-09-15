@@ -357,3 +357,6 @@ https://www.mediafire.com/file/kpqu6uenk4i6yte/Avalon+2022+KHwylD.zip/file
 
 سزوكي ديرايز
 https://www.mediafire.com/file/o8j7ceyyghr1w81/suzuki_dzire_2024_.zip/file
+
+لوحات
+https://www.beamng.com/resources/saudi-arabia-license-plate.29990/
