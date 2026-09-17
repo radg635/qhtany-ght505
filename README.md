@@ -353,20 +353,3 @@ https://www.mediafire.com/file/0kiub4hnixh96t0/LX570_2017_KHwylD.zip/file
 
 افلون 2022 (خويلد)
 https://www.mediafire.com/file/kpqu6uenk4i6yte/Avalon+2022+KHwylD.zip/file
-
-
-
-
-اكسبدشن 2025
-https://cdn.discordapp.com/attachments/1549878230905917460/1549878232550088724/2025_present_ford-expedition_u717_Baron_expedition_v1.0_verified.zip?ex=6aac4c15&is=6aaafa95&hm=8027c2e5dc1af5a74dd9e65efb977b1b59437735795a7c708980cac275419074&
-
-
-
-مكلارين 
-https://www.mediafire.com/file/0tza6hzziit6oot/Baron_McLaren.zip/file
-
-
-سيرا 2026
-https://www.mediafire.com/file/5chvv8re566rvp3/sierra_23_26.zip/file
-
-
