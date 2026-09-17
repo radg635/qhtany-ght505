@@ -360,3 +360,6 @@ https://www.mediafire.com/file/b6dg80z32rdg03j/koko_sierra_2025_.zip/file
 
 ماب لعبه معدل 
 https://www.beamng.com/resources/utah-extra.18058/download?version=41793
+
+ماب لعبه معدل 2
+https://www.mediafire.com/file/7nnr5f8t5qyspe3/k90_ksacars_peper+valy.zip/file
