@@ -353,3 +353,7 @@ https://www.mediafire.com/file/0kiub4hnixh96t0/LX570_2017_KHwylD.zip/file
 
 افلون 2022 (خويلد)
 https://www.mediafire.com/file/kpqu6uenk4i6yte/Avalon+2022+KHwylD.zip/file
+
+
+سيرا 26
+https://www.mediafire.com/file/b6dg80z32rdg03j/koko_sierra_2025_.zip/file
