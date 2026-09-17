@@ -357,3 +357,6 @@ https://www.mediafire.com/file/kpqu6uenk4i6yte/Avalon+2022+KHwylD.zip/file
 
 سيرا 26
 https://www.mediafire.com/file/b6dg80z32rdg03j/koko_sierra_2025_.zip/file
+
+ماب لعبه معدل 
+https://www.beamng.com/resources/utah-extra.18058/download?version=41793
