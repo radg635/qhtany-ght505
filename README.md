@@ -364,13 +364,9 @@ https://www.beamng.com/resources/utah-extra.18058/download?version=41793
 ماب لعبه معدل 2
 https://www.mediafire.com/file/7nnr5f8t5qyspe3/k90_ksacars_peper+valy.zip/file
 
-سيراا 2017https://www.mediafire.com/file/qeh2um78c50ziye/SIERRA_17_+.+.zip/file
+سيراا 2017
+https://www.mediafire.com/file/x8pl9hnro2aw574/SIERRA_2017_.zip/file
 
 
-
-
-
+هايلوكس 16_26
 https://modsfire.com/26wRUXy339tsFiD
-
-
-
