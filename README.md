@@ -364,17 +364,5 @@ https://www.beamng.com/resources/utah-extra.18058/download?version=41793
 ماب لعبه معدل 2
 https://www.mediafire.com/file/7nnr5f8t5qyspe3/k90_ksacars_peper+valy.zip/file
 
-
-
-كامري لوست
-https://www.mediafire.com/file/u0u62ltxsahayxb/koko_camry_2016_1785274501290.zip/file
-
 سيراا 2017
-https://www.mediafire.com/file/xbubhf468jsfupj/SIERRA_2017_SH9.zip/file
-
-https://modsfire.com/z8I5x3WzqbfnIbG
-
-
-
-
 https://www.mediafire.com/file/x8pl9hnro2aw574/SIERRA_2017_.zip/file
