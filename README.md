@@ -370,9 +370,7 @@ https://www.mediafire.com/file/x8pl9hnro2aw574/SIERRA_2017_.zip/file
 https://www.mediafire.com/file/xvrnzneee8wwamt/M7+hilux+2016-2025.zip/file
 
 
-
-https://aldiwanng.com/mod.html?id=cdc3765f-e96e-4425-a96e-ae50f6b99207
-
+https://www.mediafire.com/file/izsq3zc9ue5hmp1/2.zip/file
 
 
 
