@@ -370,13 +370,9 @@ https://www.mediafire.com/file/x8pl9hnro2aw574/SIERRA_2017_.zip/file
 https://www.mediafire.com/file/xvrnzneee8wwamt/M7+hilux+2016-2025.zip/file
 
 
-هايلوكس غمارتين 
-https://modsfire.com/5OA0o7318hYacHk
 
 
 
-
-https://www.mediafire.com/file/hwyko61jc5o1whq/Land_Cruiser_Lc70_2025_KHwylD.zip/file
 
 
 
