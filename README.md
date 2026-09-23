@@ -376,7 +376,7 @@ https://modsfire.com/5OA0o7318hYacHk
 
 
 
-
+https://www.mediafire.com/file/hwyko61jc5o1whq/Land_Cruiser_Lc70_2025_KHwylD.zip/file
 
 
 
