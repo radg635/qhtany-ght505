@@ -377,24 +377,3 @@ https://modsfire.com/D4GwkUa30YJF6RO
 
 كورلا m7
 https://www.mediafire.com/file/qmpkftub47uvspm/vehicles.zip/file
-
-
-
-فورد كرون
-https://cdn.discordapp.com/attachments/1553194537931907083/1553194542164086924/Ford_LTD_1987.zip?ex=6ab90563&is=6ab7b3e3&hm=7d60d4568055471ff4754e3ab00276e780951bd7e418a4f769d47c4b0fcc4dc5&
-
-
-ماب تجربه
-https://drive.google.com/file/d/1cRHm8_7Ro5pM1lIgByqeq2dpVnfOXbkW/view?usp=sharing
-
-
-
-بي ام دبايو
-https://modsfire.com/PUNQo1s40w5E19k
-
-
-
-
-شاص
-https://www.mediafire.com/file/cei8s58dctc2syx/warning_cr.zip/file
-
