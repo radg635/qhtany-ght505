@@ -387,11 +387,7 @@ https://www.mediafire.com/file/lby3fu8ict13yes/adn_accord2006.zip/file
 
 
 سيرا
-https://modsfire.com/g3h6w2kGKLl6D6a
-
-
-لكزز 2026
-٦https://www.mediafire.com/file/0jyer1yo2qzrq9h/LX500.zip/file
+https://modsfire.com/hxuk7HyfBCC0qzQ
 
 
 
