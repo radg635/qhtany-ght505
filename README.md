@@ -422,3 +422,12 @@ https://www.mediafire.com/file/ct1sia0lsssrxyg/vehicles.zip/file
 
 شاص
 https://www.mediafire.com/file/p3mgwv6lx57cr35/Land_Cruiser_Lc70_2025_KHwylD.zip/file
+
+
+
+كامري
+٠https://www.mediafire.com/file/9pj90b23cn0javh/Camry_2006_KHwylD.zip/file
+
+
+تورس
+https://www.mediafire.com/file/h6xninsjyyupm20/Ford+Taurus+19+-+22.zip/file
