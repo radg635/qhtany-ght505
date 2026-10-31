@@ -406,22 +406,6 @@ https://www.mediafire.com/file/66uoouhchrqkups/volumetric_backfire_fx.zip/file
 https://modsfire.com/QI9z8EYzj248iyx
 
 
-  
-
-قريح
-https://www.mediafire.com/file/pov4uxxcjcfavkt/Glow_release_BRN_AR_EN.zip/file
-
-
-
-
-كامري 
-https://www.mediafire.com/file/ct1sia0lsssrxyg/vehicles.zip/file
-
-
-
-
-شاص
-https://www.mediafire.com/file/p3mgwv6lx57cr35/Land_Cruiser_Lc70_2025_KHwylD.zip/file
 
 
 
