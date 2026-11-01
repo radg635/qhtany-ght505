@@ -410,7 +410,8 @@ https://modsfire.com/QI9z8EYzj248iyx
 
 
 كامري
-٠https://www.mediafire.com/file/9pj90b23cn0javh/Camry_2006_KHwylD.zip/file
+https://www.mediafire.com/file/7938fj27j1zzynx/vehicles.zip/file
+
 
 
 تورس
