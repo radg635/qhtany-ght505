@@ -426,19 +426,3 @@ https://www.mediafire.com/file/h6xninsjyyupm20/Ford+Taurus+19+-+22.zip/file
 https://www.mediafire.com/file/m65r2dk7f2vxxnr/sha9_23_gr_Abu_A7med+(2).zip/file
 
 
-
-يوكن
-https://www.mediafire.com/file/934v26g5k1qa9km/يوكن.zip/file
-
-
-تاهو
-https://www.mediafire.com/file/6qi6ev2cc4gl1hb/2_K_tahoe.zip/file
-
-
-ماب
-https://www.mediafire.com/file/queovaqzekudss8/al_hada_steep.zip/file
-
-
-
-
-https://www.mediafire.com/file/skv4480jq36kixg/Land_Cruiser_j70_2007_KHwylD.zip/file
