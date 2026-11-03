@@ -429,3 +429,7 @@ https://www.mediafire.com/file/m65r2dk7f2vxxnr/sha9_23_gr_Abu_A7med+(2).zip/file
 
 مود مطر
 https://modsfire.com/lOxHHXkNsPvW54R
+
+
+هيلوكس ٢٧
+https://www.mediafire.com/file/eb4zk8q68rykyye/2_K_Hilux2027.zip/file
