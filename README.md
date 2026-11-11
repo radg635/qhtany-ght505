@@ -436,3 +436,7 @@ https://www.mediafire.com/file/3bk99omv339vfct/LCJ71_j70_2006_KHwylD.zip/file
 
 كابرس
 https://www.mediafire.com/file/lmzt3blwr4styop/Caprice_2016_KHwylD.zip/file
+
+
+هايلوكس غماره
+https://modsfire.com/6opa6V09NBaOWeK
