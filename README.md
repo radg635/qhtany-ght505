@@ -405,10 +405,6 @@ https://www.mediafire.com/file/66uoouhchrqkups/volumetric_backfire_fx.zip/file
 
 
 
-ددسن
-https://modsfire.com/QI9z8EYzj248iyx
-
-
 
 
 
@@ -428,10 +424,6 @@ https://www.mediafire.com/file/m65r2dk7f2vxxnr/sha9_23_gr_Abu_A7med+(2).zip/file
 
 
 
-ددسن غماره
-https://www.mediafire.com/file/2r7k26y4teudweq/3.zip/file
-
-
 
 مود ايدي
 https://modsfire.com/PU9xi1A6zD6z4mZ
@@ -444,8 +436,3 @@ https://www.mediafire.com/file/3bk99omv339vfct/LCJ71_j70_2006_KHwylD.zip/file
 
 كابرس
 https://www.mediafire.com/file/lmzt3blwr4styop/Caprice_2016_KHwylD.zip/file
-
-
-
-ددس
-https://www.mediafire.com/file/5o9xa9lvw4300jz/aLshammari_DDsN.zip/file
