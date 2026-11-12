@@ -438,8 +438,8 @@ https://www.mediafire.com/file/3bk99omv339vfct/LCJ71_j70_2006_KHwylD.zip/file
 https://www.mediafire.com/file/lmzt3blwr4styop/Caprice_2016_KHwylD.zip/file
 
 
-ددسن غماره
-https://www.mediafire.com/file/y9gtq5w3a5bwked/aLshammari_DDsN_3marhh.zip/file
+افجي 2027
+https://www.mediafire.com/file/2h7ei9i83842xge/FJ2027.zip/file
 
 
 
