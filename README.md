@@ -438,25 +438,6 @@ https://www.mediafire.com/file/3bk99omv339vfct/LCJ71_j70_2006_KHwylD.zip/file
 https://www.mediafire.com/file/lmzt3blwr4styop/Caprice_2016_KHwylD.zip/file
 
 
-افجي 2027
-https://www.mediafire.com/file/2h7ei9i83842xge/FJ2027.zip/file
-
-
-
-
-
-هايلوكس 27
-https://www.mediafire.com/file/eb4zk8q68rykyye/2_K_Hilux2027.zip/file
-
-
-
-ماب جده
-https://modsfire.com/5NjPNn9bcXAA95M
-
-
-ماب سعودي
-https://modsfire.com/NG9aBt639y92Ifq
-
 
 
 ماب عقبه الباحه
