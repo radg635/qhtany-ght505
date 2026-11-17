@@ -459,3 +459,5 @@ https://www.mediafire.com/file/49nbwsasxvxpp4o/JB_Dynamic_Overhaul_v1.5.zip/file
 
 
 
+
+https://www.mediafire.com/file/2k07gflvd6qsoa9/monster_j70.zip/file
